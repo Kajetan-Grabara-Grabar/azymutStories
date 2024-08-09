@@ -1,106 +1,82 @@
 
-- To jest twój nowy zespół. - powiedział Matteo, prowadząc Czarownicę na śniadanie. "Wiewiórka, była profesor na Uniwersytecie Paryskim, biolożka i mutantolożka. To z nią będziesz najwięcej współpracować. Henrich, jeden z najlepszych klonerów, jakich mamy, oraz mój osobisty asystent. A na końcu siedzi Cipher, nasz specjalista do spraw komputerów. Były łowczy Azymutu, znak wywoławczy Żniwiarz Pięć. Jeden z twórców legendarnego wirusa Ragnarock. Zespole, oto Czarownica, nasz nowy członek zespołu. Specjalistka od botaniki i kultury Intalskiej.
-- Miło was poznać. - Czarownica podła wszystkim ręce na przywitanie. 
+Matteo prowadził Czarownicę na śniadanie, przestawiając jej nowy zespół. 
 
-Usiadła lekko zdezorientowana na jednym z metalowych taboretów przykręconych do ramy stołu wykonanego ze stali nierdzewnej. Wierciła się próbując znaleść jakąś wygodną pozycję. 
+- To jest twój nowy zespół – powiedział, wskazując po kolei poszczególnych członków. – Wiewiórka, była profesor na Uniwersytecie Paryskim, biolożka i mutantolożka. To z nią będziesz najwięcej współpracować. Henrich, jeden z najlepszych klonerów, jakich mamy, oraz mój osobisty asystent. A na końcu siedzi Cipher, nasz specjalista do spraw komputerów. Były łowczy Azymutu, znak wywoławczy: Żniwiarz Pięć. Jeden z twórców legendarnego wirusa Ragnarock. Zespole, oto Czarownica, nasz nowy członek. Specjalistka od botaniki i kultury Intalskiej.
 
-- Spożywanie posiłków tutaj nie należy do najprzyjemniejszych. Pomieszczenie zostało specjalnie tak zaprojektowane, abyśmy nie spędzali w nim zbyt dużo czasu. - Mówił Cipher. - My zazwyczaj jemy przed wszystkimi, ale za jakiś czterdzieści minut zjawią się tu tłumy. 
-- Załoga inżynieryjna kończy nocną zmianę. - Wyjaśniła Wiewiórka. 
-- Mówiąc to mamy na myśli elektrotechników, mechaników, informatyków i żołnierzy Kronosa oddelegowanych do nocnego dyżuru. - Dodał Henrich. 
-- Potrzeba dosyć sporo siły ludzkiej, aby nasz mały wycinek Tendales był zdatny do życia. 
-- Jak wielka jest ta podziemna baza? Nie miałam jeszcze okazji je całej zwiedzić. - Spytała nieśmiało przełamując lody. 
+– Miło was poznać – powiedziała Czarownica i podała wszystkim ręce na przywitanie.
 
-Cipher uśmiechnął się, jakby powiedziała coś głupiego. 
+Usiadła lekko zdezorientowana na jednym z metalowych taboretów przykręconych do stalowej ramy stołu. Wierciła się, próbując znaleźć wygodną pozycję.
 
-- Tendales dzielimy na dwie części, górną i dolną. Jak na razie to w tej dolnej na codzień przebywa więcej osób. W większości to cywilny personel.  - Mówił. 
-- Tak jak my. - Wtrącił się Matteo. 
+– Spożywanie posiłków tutaj nie należy do najprzyjemniejszych. Pomieszczenie zostało specjalnie tak zaprojektowane, abyśmy nie spędzali w nim zbyt dużo czasu – mówił Cipher. – My zazwyczaj jemy przed wszystkimi, za jakieś czterdzieści minut zjawią się tu tłumy.
+
+– Załoga inżynieryjna kończy nocną zmianę – wyjaśniła Wiewiórka.
+
+– Mówiąc to mamy na myśli elektrotechników, mechaników, informatyków i żołnierzy Kronosa oddelegowanych do nocnego dyżuru – dodał Henrich. – Potrzeba dosyć sporo siły ludzkiej, aby nasz mały wycinek Tendales był zdatny do życia.
+
+Czarownica, starając się przełamać lody, zapytała nieśmiało:
+
+– Jak wielka jest ta podziemna baza? Nie miałam jeszcze okazji jej całej zwiedzić.
+
+Cipher uśmiechnął się, jakby powiedziała coś naiwnego.
+
+– Tendales dzielimy na dwie części, górną i dolną. Jak na razie, to w tej dolnej przebywa więcej osób. W większości to cywilny personel – mówił.
+
+– Tak jak my – wtrącił się Matteo.
 
 Były łowca kontynuował:
 
-- Górna część jest zasiedlona przez tubylców mieszkających na tych ziemiach od conajmniej dziesięciu może piętnastu pokoleń. 
-- Rdzennych mieszańców jest dość mało. - Dodał Henrich. - Nie wszystkim przypadło do gustu mieszkanie w swego rodzaju państwie mieście pełnym reguł i dziwactw. Sporo rodzin i klanów wyemigrowało i założyło własne osady w okolicy. 
-- To nie są dzikusy, żebyś nas źle nie zrozumiała. - Prawie wykrzyczała Wiewiórka. - Po prostu chcieli żyć bardziej tradycyjnym życiem. 
-- Jak wyjdziesz na powierzchnię to sama zobaczysz. - Wtrącił Matteo. 
+— Górna część jest zasiedlona przez tubylców mieszkających na tych ziemiach od co najmniej dziesięciu, może piętnastu pokoleń.
 
-Czarownica poprawiła się na taborecie. 
+Henrich dodał: — Rdzennych mieszkańców jest dość mało. Nie wszystkim przypadło do gustu mieszkanie w swego rodzaju państwie-mieście pełnym reguł i dziwactw. Sporo rodzin i klanów wyemigrowało i założyło własne osady w okolicy.
 
-- Jak to wygląda z wychodzeniem na zewnątrz? Przyznam, że przez lata życia w lesie bardzo odwykłam od sterylności i ciasnoty podziemnych kompleksów. 
+— To nie są dzikusy, żebyś nas źle nie zrozumiała — prawie wykrzyczała Wiewiórka. — Po prostu chcieli żyć bardziej tradycyjnym życiem.
 
-Cipher wyciągnął z kieszeni czarną kartę pokrytą posrebrzanym kodem kreskowym połyskującym w świetle lamp. 
+— Jak wyjdziesz na powierzchnię, to sama zobaczysz — wtrącił Matteo.
 
-- Po śniadaniu wyrobię ci twoją prywatną kartę dostępową. Będziesz mogła bez przeszkód poruszać się po większości korytarzy jak i skorzystać z windy na powierzchnię. Mogę ci pokazać co i jak po przerwie obiadowej. 
-- Pamiętaj tylko, że nie ma tu nigdzie map, a Dolne Tendales było projektowane aby pomieścić nawet pięćdziesiąt tysięcy osób. To jeden wielki labirynt. - Odezwał się Henrich. 
+Czarownica poprawiła się na taborecie.
 
-Matteo przewrócił oczami. 
+— Jak to wygląda z wychodzeniem na zewnątrz? Przyznam, że przez lata życia w lesie bardzo odwykłam od sterylności i ciasnoty podziemnych kompleksów.
 
-- Nie jest tak źle. Co prawda kompleks jest ogromny, ale do puki będziesz korzystać z wind, to wydostanie się na powierzchnię i powrót nie będzie jakimś wielkim wyzwaniem. 
+Cipher wyciągnął z kieszeni czarną kartę pokrytą posrebrzanym kodem kreskowym, połyskującym w świetle lamp.
 
-Czarownica uśmiechnęła się. 
+— Po śniadaniu wyrobię ci prywatną kartę dostępową. Będziesz mogła bez przeszkód poruszać się po większości korytarzy, jak i skorzystać z windy na powierzchnię. Mogę ci pokazać co i jak po przerwie obiadowej.
 
-- Bez obaw. Pracowałam kiedyś dla Azymutu, coś jeszcze pamiętam. 
+Henrich odezwał się: — Pamiętaj tylko, że nie ma tu nigdzie map, a Dolne Tendales było projektowane, aby pomieścić nawet pięćdziesiąt tysięcy osób. To jeden wielki labirynt.
 
-Cipher oparł się o ścianę. 
+Matteo przewrócił oczami.
 
-- Nie wiem w jakim regionie pracowałaś i nie zamierzam o to dopytywać, ale Tendales nie ma nic wspólnego z laboratoriami jakie niegdyś czyściłem ze zbiegłych mutantów. Nie mamy tutaj typowego poziomu biurowego, laboratoryjnego, magazynowego oraz więziennego do przechowywania krwiożerczych bestii. Ta palcówka, lub lepszym określeniem byłoby podziemne miasto, została zbudowana w byłej kopani. Wszystko jest ze sobą zmieszane i połączone tunelami podobnymi do metra. 
-- Zaraz pod nami znajduje się poziom mieszkalny wraz z koszarami i magazynem broni. - Wyjaśniał Matteo. - Niestety będziemy musieli się przenieść z biurka Kronosa do wspólnej sypialni. Będziesz miała sporo czasu, aby przejrzeć ten poziom wzdłuż i wszerz.
-- Nie licząc zbrojowni oczywiście. Tam ma dostęp jedynie wykwalifikowany personel. - Dodał Cipher.
+— Nie jest tak źle. Co prawda kompleks jest ogromny, ale dopóki będziesz korzystać z wind, to wydostanie się na powierzchnię i powrót nie będą wielkim wyzwaniem.
+
+Czarownica uśmiechnęła się.
+
+— Bez obaw. Pracowałam kiedyś dla Azymutu, coś jeszcze pamiętam.
+
+Cipher oparł się o ścianę.
+
+– Nie wiem, w jakim regionie pracowałaś i nie zamierzam o to dopytywać, ale Tendales to coś całkowicie innego niż laboratoria, które niegdyś czyściłem ze zbiegłych mutantów. Nie mamy tutaj typowego podziału na poziomy biurowe, laboratoryjne, magazynowe oraz więzienne. Ta placówka, albo lepiej - podziemne miasto, została zbudowana w dawniej funkcjonującej kopalni. Wszystko jest ze sobą zmieszane i połączone tunelami przypominającymi metro.
+
+– Zaraz pod nami znajduje się poziom mieszkalny, razem z koszarami i magazynem broni – wyjaśniał Matteo. – Niestety, będziemy musieli się przenieść z naszych biurek do wspólnej sypialni. Będziesz miała sporo czasu, aby przejrzeć ten poziom wzdłuż i wszerz.
+
+– Nie licząc zbrojowni oczywiście. Tam mają dostęp jedynie wykwalifikowani pracownicy – dodał Cipher.
 
 Matteo kontynuował:
 
-- Niżesz mam coś w stylu strefy rekreacyjnej. Siłownia, basen, strzelnica i kilka korytarzy wygospodarowanych jako bieżnie do biegania. Taki podstawowy zestaw aby nie oszaleć na wypadek zakazu wychodzenia na powierzchnię. 
-- To ciekawe. - Zdziwiła się. - Zamykają was tutaj? 
+– Niżej mamy coś w stylu strefy rekreacyjnej. Mamy siłownię, basen, strzelnicę i kilka korytarzy wykorzystanych jako bieżnie do biegania. Taki podstawowy zestaw, żeby nie oszaleć w razie zakazu wychodzenia na powierzchnię.
 
-Cipher machnął ręką. 
+– To ciekawe – zdziwiła się. – Zamykają was tutaj?
 
-- Raz się zdażyło i to tylko na tydzień. Testowali systemy podtrzymywania życia i musieli odciąć całą placówkę od powietrza atmosferycznego. 
-- Przynajmniej jak powiedzieli. - Wtrącił Henrich. 
+Cipher machnął ręką.
 
-Drzwi do kuchni otworzyły się i wyjechał z nich robot przypominający mobilną półkę zastawioną plastikowymi tackami z jakimś jedzeniem i białą butelką. 
+– Raz się zdarzyło, i to tylko na tydzień. Testowali systemy podtrzymywania życia i musieli odciąć całą placówkę od powietrza atmosferycznego.
 
-- Dopowiem, bo nie skończyłem. - Matteo zdjął jedną z tac z autonomicznego kelnera i podał ją Cipherowi. - Najniżej są magazyny, które na codzień są zalane niezdatną do oddychania mieszankom gazów, które chronią przed korozją i szkodnikami. W jedynej halli z normalnym powietrzem zbudowano coś pokroju miejskiego poligonu. Trenują tam głównie komandosi Kronosa, ale ktoś z załogi inżynieryjnej wpadł na genialny pomysł, aby pomiędzy atrapami budynków zbudować tor gogartowy. 
-- Za trzy uncje srebrna można wypożyczyć pojazd na godzinę, albo pójść pooglądać zagania innych. - Powiedziała Wiewiórka. 
-- Jeśli akturat poligon nie jest okupowany przez specjalsów. - Matteo podał tacę Czarownicy i odesłał elektronicznego kelnera z powrotem do kuchni. - Co nie należy do rzadkości, ale na przy wejściu wisi rozpiska z rezerwacjami. 
+– Przynajmniej tak nam powiedzieli – wtrącił Henrich.
 
-  
+Drzwi do kuchni otworzyły się, a przez nie wyjechał robot przypominający mobilną półkę, zastawioną plastikowymi tackami z jedzeniem i białą butelką na każdej.
 
-  
+– Dopowiem, bo nie skończyłem – Matteo zdjął jedną z tac z autonomicznego kelnera i podał ją Cipherowi. – Najniżej są magazyny, które na co dzień są zalane niezdatną do oddychania mieszanką gazów, chroniących przed korozją i szkodnikami. W jedynej hali z normalnym powietrzem zbudowano coś w rodzaju miejskiego poligonu. Trenują tam głównie komandosi Kronosa, ale ktoś z załogi inżynieryjnej wpadł na genialny pomysł, aby pomiędzy atrapami budynków zbudować tor gokartowy.
 
-  
+– Za trzy uncje srebra można wypożyczyć pojazd na godzinę, albo po prostu pójść i pooglądać zmagania innych – powiedziała Wiewiórka.
 
-  
+– O ile akurat poligon nie jest okupowany przez specjalsów – Matteo podał tacę Czarownicy i odesłał elektronicznego kelnera z powrotem do kuchni. – Co niestety nie należy do rzadkości, ale przy wejściu wisi rozpiska z rezerwacjami.
 
-  
-
-  
-
-  
-
-  
-
-  
-
-  
-
-- Czy dobrze rozumiem, że produkujecie mutanty i przetrzymujecie je tutaj? - Zaniepokoiła się. 
-- Nie. - Szybko odpowiedział Matteo. - Produkujemy jedynie obiekty dwa pięć osiem i nic więcej. Te czasy dawno minęły i już nie powrócą! - Zaczął się unosić. 
-
-Nastała grobowa cisza. 
-
-- Wybacz naszemu koledze. - Zaczął cicho Cipher. - Został ciężko ranny, gdy podczas jednego z incydentów znalazł się w nieodpowiednim miejscu o nieodpowiednim czasie. - Starał się mówić delikatnie. - Nie został obiektem dwa pięć osiem z wyboru jak Henrich i Wiewiórka. 
-
-Czarownica westchnęła. 
-
-- Znam ten ból zbyt dobrze. Przeszłam podobną sytuację. Podczas walko Szklane Miasto zostałam śmiertelnie ranna w trakcie ewakuacji personelu medycznego. Mój ukochany uratował mnie i umieścił w tej powłoce. 
-
-Wiórka pochyliła się nad srebrnym płatem.
-
-- Ostrożnie z takimi szczegółami. Czasami warto zostawić przeszłość za sobą i już do niej niewracań. 
-- Szczególnie w twoim przypadku, Czarownico. - Szorstko dodał Cipher. 
-
-Emily pobledła. 
-
-- Nie wiem o czym mówisz. - Powiedziała wyraźnie zdenerwowana. 
-
-Przej jej głowę przeszły wspomnienia jak razem z Alfą oraz resztę jego rycerzy wchodzili do schronów Azymutu i bez litości mordowali zahibernowane obiekty dwa pięć osiem. 
-
-- Po prostu wiem czym zajmowała się Emily. - Cipher uśmiechnął się. - Pozwólmy jej umrzeć raz na zawsze.
+Przed Czarownicą stanęła taca z czymś co w ogóle nie przypominało jedzenia. Stos czegoś w rodzaju krakersów kolorem przypominających karton leżał równo ułożony obok białej plastikowej butelki, która swoim kształtem przypominała bardziej pojemniki na alkohol izopropylowy, niż takie od jogurty lub kefiru jakie pamiętała z przeszłości. 
