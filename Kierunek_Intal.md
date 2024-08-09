@@ -79,4 +79,24 @@ Drzwi do kuchni otworzyły się, a przez nie wyjechał robot przypominający mob
 
 – O ile akurat poligon nie jest okupowany przez specjalsów – Matteo podał tacę Czarownicy i odesłał elektronicznego kelnera z powrotem do kuchni. – Co niestety nie należy do rzadkości, ale przy wejściu wisi rozpiska z rezerwacjami.
 
-Przed Czarownicą stanęła taca z czymś co w ogóle nie przypominało jedzenia. Stos czegoś w rodzaju krakersów kolorem przypominających karton leżał równo ułożony obok białej plastikowej butelki, która swoim kształtem przypominała bardziej pojemniki na alkohol izopropylowy, niż takie od jogurty lub kefiru jakie pamiętała z przeszłości. 
+Przed Czarownicą stanęła taca z czymś, co w ogóle nie przypominało jedzenia. Stos czegoś w rodzaju krakersów, kolorem przypominających karton, leżał równo ułożony obok białej plastikowej butelki. Butelka była kształtem bardziej podobna do pojemników na alkohol izopropylowy niż tych od jogurtu lub kefiru, które pamiętała z przeszłości. Z lekkim grymasem zdegustowania wzięła pierwszy kawałek "kartonu" i odgryzła jeden z jego rogów. Ku jej zaskoczeniu krakers miał słony smak z delikatną nutą tymianku. Spojrzała na innych, ale nikt nie był zaskoczony nietypowym dla niej śniadaniem.
+
+Cipher łamał suchary na mniejsze kawałki przed włożeniem do ust i zamyślony patrzył się w jedną ze ścian. Henrich wyciągnął z kieszeni elektroniczny czytnik i położył go na stole. Nacisnął kilka przycisków, a na powierzchni e-papieru pojawiła się mozaika znaków, której Czarownica nie mogła rozszyfrować. Słowa na pierwszy rzut oka przypominały angielski, język, który już dawno by zapomniała, gdyby nie biokomputer komunikujący się z nią od czasu do czasu przez sny, nękając ją bezsensownymi informacjami.
+
+Gdy pracowała dla Azymutu, wielokrotnie była świadkiem, jak niektóre Obiekty 258 wykorzystywały chip w głowie do błyskawicznego tłumaczenia tekstu. Mimo wielu prób okiełznania tej techniki, ona sama nigdy nie osiągnęła większych sukcesów w tym polu.
+
+Odkręciła polimerową nakrętkę i powąchała zawartość butelki. Szara ciecz wydzielała woń przypominającą wanilię zmieszaną z żywicą.
+
+— Niezbyt zachęcające — pomyślała, biorąc spory łyk. Również ku jej zaskoczeniu napój nie był taki zły. Słodkawy, gęsty i bardzo sycący; w porównaniu do krakersów to on stanowił główne danie. Próbowała przypomnieć sobie, czy piła coś podobnego wcześniej. Po krótkim zastanowieniu doszła jednak do wniosku, że wolałaby nie wiedzieć, co pije ani je — dla swojego komfortu psychicznego.
+
+Matteo skończył posiłek jako pierwszy i odniósł swoją tackę do małego okienka po drugiej stronie kantyny. Zanim zdążył wrócić do stołu, robotyczne ramię szybkim ruchem sprzątnęło parapet.
+
+— Czy jest tutaj więcej opcji żywieniowych? — spytała Czarownica, krusząc ostatni suchar.
+
+Cipher wstał i przeciągnął się rozciągając plecy.
+
+— Tak, "karton z farbą" jemy tylko wtedy, gdy cała kuchnia śpi lub nie ma nic innego w magazynie. Szwedzkiego stołu tutaj nie uświadczysz, ale zazwyczaj jest coś lepszej jakości. Dziś mamy po prostu pecha.
+
+— Kilka pomieszczeń dalej mamy ogród warzywny tylko na użytek naszej kuchni — dodał Henrich, odrywając wzrok od e-papieru. — Więc jedzenie często jest świeże.
+
+— Świeże, jeśli kuchnia ma wystarczająco czasu na umycie roślin z żelu i syntetycznej gleby. W innych przypadkach idą konserwy i mrożonki — zakończył były łowca.
