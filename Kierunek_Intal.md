@@ -127,33 +127,135 @@ Kronos spojrzał prosto w oczy Neptunowi.
 
 Alfa wraz z Sigmą siedzieli na stosie drewnianych skrzyń, opierając się o zwoje żółtego płótna żaglowego, popijając intalskie wino z dzbanka. Obserwowali krzątających się na molo ludzi z Odyseusza, przebranych za dokerów i marynarzy. Pomimo świetnego przebrania nie dało się ukryć, że przedmioty wynoszone na ląd i pospiesznie ukrywane pośród normalnych towarów kompletnie odstają od otoczenia. Plecaki pokryte czarnym kamuflażem, polimerowe skrzynie, a przede wszystkim broń, której w Intal nie sposób było znaleźć, dla każdego przypadkowego przechodnia wydawałyby się co najmniej podejrzane.
 
-Czterej przyjaciele, pomimo względnej niewoli, byli zaskakująco dobrze traktowani. Alfa tłumaczył to sobie przysłowiem „Wróg twojego wroga jest twoim przyjacielem”, ale mimo wszystko coś podpowiadało mu, że gościna szybko się skończy, gdy przestaną być potrzebni. Jednak nie był pewien, do czego. Mogli swobodnie poruszać się po magazynach i dokach, nie licząc pewnych pomieszczeń, które najwyraźniej zawierały coś tajnego lub niebezpiecznego. Praktycznie zawsze ktoś ich obserwował. Uzbrojeni strażnicy skrywali się w każdym zakamarku przystani, więc ucieczka nie byłaby taka prosta. Poza tym nie mieli gdzie uciekać. W całym porcie, na niemal każdej tablicy ogłoszeniowej, wisiały ich listy gończe. Przestali się golić, aby mieć większe szanse zmylenia policji w razie potencjalnych kłopotów.
-- Nieźle sobie radzą. - Mówił po japońsku obawiając się podsłuchu. - Ogarnięcie tak dużej operacji i to jeszcze w pod samym nosem Intalczyków... No na pewno nie było i nie jest to proste. 
-- Jak to mawiają. Najciemniej pod latarnią. - Uśmiechnął się pod nosem Sigma ciągnąc łyk z dzbanka. 
-- W tym przypadku dosłownie. - Spojrzał na sam czubek pobliskiej latarnii na której jeden z komandosów pod przykrywką latarnika oglądał morze przez lornetkę. 
-- Sądzisz, że Odyseusz Potrójne Zero lub papa Grek... Spodziewam się, że to ta sama soba.. ale czy sądzisz, że to może być Kronos? Ten Kronos? - Spytał nie pewnie Sigma nie kryjąc lęku. 
-- Nawet jeśli, to nie mamy pewności, że nas pamięta. Wielu z tych ludzi przypomina łowców z oryginalnego Odyseusza, ale są to zupełnie inni ludzie z wiedzą. 
-Napili się jeszcze raz z dzbanka. 
-- Ciekawe, który bunkier Azymutu przegapiliśmy. - Zaśmiał się Alfa.
-- Według danych jakie zebrał Merlin, wyczyściliśmy wszystkie. 
-- Znikąd nie mogli się pojawić. 
-- Myślę... Może źle założyliśmy, że Azymut był już na wykończeniu, gdy no wiesz... - Przełknął ślinę. - Ostatni raz walczyliśmy z Kronosem. Odyseuszowi i nam skończyła się amunicja w powie walki. My nie mieliśmy skąd jej brać. Zapasy już dawno się pokończyły, a oni? Mieli przecież najlepsze zaplecze logistyczne na świecie. Gdyby było inaczej, to łowcy nie lataliby po wszystkich kontynentach i nie zbierali kryształowych dysków z opuszczonych placówek. 
-- Co chcesz przez to powiedzieć? 
-- A co jeśli Azymut nadal budował swoje schrony jeszcze długo po końcu ludzkości? Nie mówię tutaj o Azji, bo to byśmy zauważyli, ale tutaj w Europie. To by było jedyne wyjaśnienie dlaczego lista Merlina była niekompletna. 
-Alfa dopił resztę Intalskiego wina. 
-- Może, ale nie jestem przekonany do twojej teorii. Równie dobrze bazy danych mogłyby być niepełne. 
-- To fakt. Niemniej jednak Azymut mógł być w nieco lepszej kondycji niż zakładaliśmy. 
-- To dlaczego się zahibernowali? Każdą placówkę do jakiej się dostaliśmy zastaliśmy nieobsadzoną z personelem śpiącym w kapsułach. 
-- Tego też nie wiem. 
+Czterej przyjaciele, pomimo swojego stanu niewoli, byli zaskakująco dobrze traktowani. Alfa próbował tłumaczyć to sobie przysłowiem „Wróg twojego wroga jest twoim przyjacielem”, ale coś w głębi duszy podpowiadało mu, że gościna szybko się skończy, gdy tylko przestaną być potrzebni. Do czego jednak? Tego jeszcze nie wiedział. Mogli swobodnie poruszać się po magazynach i dokach, z wyjątkiem kilku pomieszczeń, które najwyraźniej skrywały coś tajnego lub niebezpiecznego. Ich ruchy były praktycznie zawsze monitorowane – uzbrojeni strażnicy ukrywali się w każdym zakamarku przystani jak cienie. Ucieczka nie byłaby prosta, a może nawet niemożliwa. Poza tym, nie mieli dokąd uciekać. W całym porcie, na niemal każdej tablicy ogłoszeniowej, wisiały ich listy gończe. Przestali się golić, aby mieć większe szanse zmylenia policji w razie ewentualnych kłopotów.
 
-Zaszedł ich od tyłu jeden z komandosów pod przykrywką portowego dockera. Wysoki na prawie dwa i pół metra mężczyzna ubrany w wełnianą czapkę nasuniętą na uszy, biało-niebieski podarty i brudny podkoszulek luźno zwisający z muskularnego torsu. Wyglądu typowego pracownika portowego dopełniały grube spodnie wykonane z płótna żaglowego. Niezwykle wytrzymałe i dość niewygodne. Herakles, bo tak miał na imię skrzyżował ramiona i odezwał się w nienagannym Intalskim:
-- Nasz lider chciałby się z tobą zobaczyć. - Zwrócił się do Alfy.
+— Nieźle sobie radzą — mruknął Alfa po japońsku, obawiając się podsłuchu. — Ogarnięcie tak dużej operacji pod samym nosem Intalczyków... Na pewno nie było i nie jest to proste.
 
-Sigma, klepnął swojego przyjaciela w ramię i powiedział po japońsku:
-- Powodzenia. 
-Herakles pojrzał na niego podjerzliwie. Nie znał tego języka Czarny rycerz wstał i otrzepał spodnie z kurzy i trocin.
-- Mogę wiedzieć, czego odemnie chce? - Spytał. 
-- Nie sprecyzował. - Odpowiedział lakonicznie. 
-- A wiec nie karzmy mu czekać. - Uśmiechnął się próbując zamaskować stres. 
+— Jak to mawiają: najciemniej pod latarnią — uśmiechnął się Sigma, pociągając łyk z dzbanka.
 
+— W tym przypadku dosłownie — odpowiedział Alfa, spoglądając na czubek pobliskiej latarni, na której jeden z komandosów, pod przykrywką latarnika, obserwował morze przez lornetkę.
 
+— Sądzisz, że Odyseusz Potrójne Zero albo papa Grek... Spodziewam się, że to ta sama osoba... Ale czy sądzisz, że to może być Kronos? Ten Kronos? — zapytał niepewnie Sigma, nie kryjąc lęku w głosie.
+
+— Nawet jeśli, to nie mamy pewności, że nas pamięta. Wielu z tych ludzi przypomina łowców z oryginalnego Odyseusza, ale to zupełnie inni ludzie, z inną wiedzą.
+
+Napili się jeszcze raz z dzbanka, cisza między nimi nabrzmiewała od niewypowiedzianych obaw i domysłów.
+
+— Ciekawe, który bunkier Azymutu przegapiliśmy — zaśmiał się gorzko Alfa, próbując rozładować napięcie.
+
+— Według danych zebranych przez Merlina, wyczyściliśmy wszystkie — odparł Sigma, choć w jego głosie pobrzmiewała nuta niepewności.
+
+— Znikąd nie mogli się pojawić.
+
+— Myślę... Może źle założyliśmy, że Azymut był już na wykończeniu, gdy ostatni raz walczyliśmy z Kronosem — Sigma przełknął ślinę, wspomnienia tamtych dni wciąż były zbyt żywe. — Odyseuszowi i nam skończyła się amunicja w powie walki. My nie mieliśmy skąd jej brać, zapasy już dawno się pokończyły, a oni? Mieli przecież najlepsze zaplecze logistyczne na świecie. Gdyby było inaczej, to łowcy nie lataliby po wszystkich kontynentach, zbierając kryształowe dyski z opuszczonych placówek.
+
+— Co chcesz przez to powiedzieć?
+
+— A co, jeśli Azymut nadal budował swoje schrony jeszcze długo po końcu ludzkości? Nie mówię tutaj o Azji, bo to byśmy zauważyli, ale tutaj w Europie. To by mogło być jedyne wyjaśnienie, dlaczego lista Merlina była niekompletna.
+
+Alfa dopił resztę intalskiego wina, czując, jak ciepło trunku rozchodzi się po jego ciele.
+
+— Może masz rację, ale nie jestem przekonany do twojej teorii. Równie dobrze bazy danych mogłyby być niepełne — powiedział, odstawiając pusty dzbanek.
+
+— To fakt. Niemniej jednak Azymut mógł być w nieco lepszej kondycji, niż zakładaliśmy — odpowiedział Sigma, zamyślając się.
+
+— To dlaczego się zahibernowali? Każdą placówkę, do jakiej się dostaliśmy, zastaliśmy nieobsadzoną, z personelem śpiącym w kapsułach — dodał Alfa, w jego głosie pobrzmiewała nuta frustracji.
+
+— Tego też nie wiem — przyznał Sigma, bezradnie wzruszając ramionami.
+
+Nagle poczuli obecność kogoś za sobą. Jeden z komandosów, przebrany za portowego dokera, zbliżył się bezszelestnie. Był to olbrzymi mężczyzna, prawie dwa i pół metra wzrostu, ubrany w wełnianą czapkę nasuniętą na uszy oraz biało-niebieski, podarty i brudny podkoszulek, który ledwo zakrywał jego muskularny tors. Wygląd typowego pracownika portowego dopełniały grube spodnie z płótna żaglowego — niezwykle wytrzymałe, choć niezbyt wygodne. Herakles, bo tak miał na imię, skrzyżował ramiona na piersi i odezwał się w nienagannym intalskim:
+
+— Nasz lider chciałby się z tobą zobaczyć — zwrócił się do Alfy, jego głos był głęboki i nieznoszący sprzeciwu.
+
+Sigma klepnął swojego przyjaciela w ramię i powiedział po japońsku:
+
+— Powodzenia.
+
+Herakles spojrzał na Sigmę z podejrzliwością, jego twarz nie zdradzała żadnych emocji, ale oczy zdradzały niepokój. Język, którego nie znał, zawsze budził w nim nieufność. Czarny Rycerz, jak nazywano Alfę, wstał, otrzepał spodnie z kurzu i trocin, starając się zachować spokój.
+
+— Mogę wiedzieć, czego ode mnie chce? — zapytał, próbując brzmieć neutralnie.
+
+— Nie sprecyzował — odpowiedział Herakles krótko, nie dając po sobie poznać, co myśli.
+
+— A więc nie każmy mu czekać — odparł Alfa, zmuszając się do uśmiechu, który miał ukryć narastający stres.
+
+Dwójka mężczyzn przeszła przez ciasny tunel zbudowany ze skrzyń ustawionych jedna na drugą. Wszystkie miały poprzybijane etykiety z greckimi literami, których Alfa nie był wstanie rozczytać. W jednym z głównych magazynów grupa dokerów tłumaczyła coś ludziom w czarnych mundurach z emblematem greckiego hełmu na naszywkach. 
+- Coś nowego. - Powiedział w głowie sam do ciebie. 
+Jeden z nich wyjął notes z kieszeni i już chciał zacząć notować, gdy jeden z agentów Odyseusza chwycił go za rękę. 
+- Nie notuj czegoś co łatwo zapamiętać. Im mniej pisemnych notatek tym mniej śladów do zatarcia. - Doradził mu. 
+Herakles otworzył drzwi do małej przybudówki mieszczącej gabinet głównego magazyniera. Duże okna skierowane na południe świetnie doświetlały pomieszczenie czyniąc je idealne do pracy z masą list i dokumentów przewozowych upchanych do wiklinowej szaf i półek zajmujących niemal całą sąsiednią ścianę. 
+- Usiądź tu i czekaj. - Powiedział doker zamykając za Alfą drzwi. 
+Rycerz usiadł na jednym z trzech drewnianych krzeseł dostawionych do stołu ustawionego w samym centrum. Wziął do ręki zeszyt leżący na blacie i nie mając nic lepszego do roboty, zaczął go wertować. 
+- Dlaczego wszystko tutaj jest zapisane po grecku. Nawet pieprzone notatki magazynowe. - Mówił próbując znaleść cokolwiek co byłby wstanie przeczytać. Czuł się jak analfabeta w bibliotece. 
+Drzwi zaskrzypiały i do środka wparował mężczyzna w długim czarnym płaszczu z mieczem u pasa. Nie zwracając uwagi na Alfę przystanął w połowie drogi starając się coś upchnąć do kieszeni skrytej pod ciemną tkaniną. Rycerz chcąc zachować się zgodnie z etykietą wstał i podał rękę na przywitanie. Jegomość spojrzał najpierw na jego dłoń, potem na niego i ku jego zaskoczeniu uścisnął przedramię rycerza tuż za nadgarstkiem. Alfa wyczuł nóż chowany pod rękawem. 
+- Nie sądziłem, że kiedyś zobaczę na własne oczy tego sławnego Czarnego Rycerza. - Zagaił nieznajomy uśmiechając się szeroko. - Przeczytałem całą twoją sagę. - Wskazał krzesła, aby zasiedli razem. 
+- Miło mi, że ktoś docenia dzieło mojego życia. - Powiedział nie kryjąc ulgi. 
+- Niemiej jednak jest tam kilka sporych nieścisłości. 
+- Spisywałem wszystko po czasie. Nie wszystko pamiętałem tak jak w istocie się wydarzyło. O jakich nieścisłościach masz na myśli. 
+Jego rozmówca zrobił poważniejszą minę. 
+- Opisałeś pewną bitwę. Jak dobrze pamiętam była to walka o kryształowy kwiat w katakumbach zatraconego świata. Pisałem, że twoi rycerze byli okrążeni przez siły zła w przewadze pięć do jednego. Chciałbym zauważyć, że było zupełnie odwrotnie. 
+Alfa pobladł. Jeszcze chwilę temu nie miał pojęcia z kim rozmawia, ale teraz wszystko stało się jasne. Nie poznał Kronosa przez brak szpecących jego twarz blizn, których zawsze miał kilka. Biokomputer w głowie mężczyzny przełączył jego ciało w tryb bojowy. Adrenalina zaczęła sączyć się do jego żył a czas wyraźnie zwolnił. Przez jego głowę w mgnieniu oka przeszło kilka scenariuszy. Tym najbardziej obiecującym było, rzucenie stołem w Kronosa i obezwładnienie go, ale co potem? Nie miał miał gdzie uciekać, a nawet jeśli jakimś cudem by mu się to udało jego przyjaciele z pewnością przypłaciliby to życiem. W tym wypadku, walka nie była rozwiązaniem. Postanowił rozegrać to inaczej. Jednak wpierw uspokoił umysł, aby mózg znowu wrócił do normalnych obrotów. Czas przyśpieszył pozostawiając go z masą adrenaliny w krwioobiegu. 
+- Tak mi się podobało. - Mówił starając się udawać pewnego siebie. Odchylił się na krześle i skrzyżował ręce na piersi. - Historię piszą zwycięrzcy. 
+Kronos znowu się uśmiechnął. 
+- Może i piszą, ale powiedź szczerze. Twój honor nie pozwolił ci przełknąć takiego wielkiego wpierdolu. 
+- Jest w tym ziarnko prawdy. 
+- Chyba kokos. - Zaśmiał się Kronos. - Podjąłeś bardzo ryzykowną decyzję walcząc z nami. Gdybyś oddał nam w tedy kryształowy dysk nikt by wtedy nie umarł. - Cmoknął w zamyśleniu. - Ale z pewnością zabilibyśmy cię jakiś czas później. W bardziej dla nas sprzyjających okolicznościach. 
+- Jak możesz śmiać się z takiej sytuacji? - Zapytał całkiem na serio. - Zostałeś żywcem rozszarpany przez mutantów. 
+Kronos podrapał się po głowie. 
+- Jestem łowcą. Zginąłem dokładnie siedemnaście razy. Jakby to powiedzieć... Przyzwyczaiłem się do tego uczucia. Jak chłód ogarnia całe twoje ciało, twoje serce przestaje bić, a jaźń powoli ginie w nieprzeniknionej pustce. 
+- Moi ludzie po przywróceniu do żywych mieli po tym wielką traumę. Czarownica nie miała koszmary przez wiele lat. 
+- Coś o tym wiem. Miała mdłości na sam mój widok. Najwyraźniej każdy przechodzi to inaczej. 
+- Jak to? Kiedy ją spotkałeś? - Zerwał się gwałtownie z siedzenia. 
+- Odwiedziłem ją w jej leśnej chatce jakiś czas temu. Zamieniliśmy kilka słów i znikąd napadły na nas stada mutantów. Obiekt 258 o numerze seryjnym Lambda zostawił gdzieś w pobliżu wabik radiowy próbował ją uciszyć...
+- Co z nią? Wszystko w porządku? Jest bezpieczna? - Prawie wykrzyczał. 
+- Tak, nic jej nie jest. Przebywa razem z moimi ludźmi w Tendales. 
+Alfa usiadł i głośno odsapnął. 
+- To dobrze. Nie wybaczyłbym sobie, gdyby coś jej się stało. 
+- Ciekawe. Spodziewałem się, że zastanę ją razem z tobą. Przez prawie wszystkie karty sagi byliście nierozłączni. 
+- To skomplikowane. 
+- Domyślam się. 
+- W skrócie mi brakowało przygód a ona chciała osiąść gdzieś na stałe, i od tego się zaczęło. - Wyprostował się. - Ale dość o moich perypetiach. Co u ciebie? Wiem, że nigdy się nie dogadywaliśmy, ale najwyższy czas, aby to zmienić. 
+Kronos powiedział coś po grecku pod nosem a potem dodał po intalsku. 
+- Zginąłem. Obudziłem się ponownie, na szczęście we własnym ciele...
+- A obudziłeś się kiedyś w nieswoim? - Spytał z ciekawością. 
+- Tak i jest to bardzo niekomfortowe. W większości przypadków radą na to jest generalizacja która wspomnienia i wszystkie personalia, ale można by rzec, jestem trochę inny. 
+- Ktoś jeszcze z twoich ludzi zachował wspomnienia?
+- Kompletnie nikt. Chociaż czasami mi się wydaje, że mają jakieś przebłyski dawnego życia. Jakby to ując, aktualny Odyseusz został stworzony na bazie zgeneralizowanych i zmieszanych osobowości mojej poprzedniej ekipy. Nie jestem tego pewien, ale chyba mają lekką domieszkę innych łowców. 
+- Nie masz możliwości ich odtworzenia, w "nie zmieszanej" wersji? 
+Kronos spuścił głowę.
+- To nie takie proste. Niedobitki, które zostawiliście przy życiu nie należą do najbystrzejszych, ale mają łeb na karku i znają moją przeszłość. Powiedźmy, że gdybym odtworzył moich ludzi od tak, straciłbym większość przywilejów i moją renomę, na którą pracowałem przez ostatnie dwa lata. Mam plan jak wyjść z tej sytuacji, ale potrzebuję jeszcze trochę czasu. Tymczasem moim zadaniem jest posprzątać burdel jaki zrobili moi przełożeni w stosunkach między Tendales a Intal. 
+Alfa przypomniałem sobie list od Kappy i próbował pasować go w całą sytuację. 
+- Twoi zaczęli pierwsi? - Spytał.
+- Trudno powiedzieć jak ten konflikt tak na prawdę się zaczął. Intalskie jednostki ekspedycyjne od lat napadały na wioski północy. 
+- To ciekawe. - Zdziwił się rycerz. 
+- Niemniej jednak całość zaczęła nabierać rozpędu względnie niedawno. 
+- Ty porwałeś córkę króla? 
+- Osobiście nie, ale pomagałem w tej operacji. 
+- To przez ciebie myślą, że jestem zdrajcą! Masz na to jakieś wytłumaczenie? - Ryknął. 
+- Mam. Na tą chwilę to jedyny sposób, aby rozpocząć negocjacje z królem Intal. 
+- Wysadziłeś cały fort, a fala zabiła setki niewinnych osób!
+- Jeśli będę siedzieć z założonymi rękoma zginą dziesiątki lub nawet setki tysięcy więcej. 
+- Niby jak? 
+- Azymut ma rakiety z ładunkami nuklearnymi. Jeśli nie powstrzymamy konfliktu to całe królestwo wyleci w powietrze. Chcesz do tego doprowadzić? 
+Alfę zamurowało. Mógł to być po prostu flej, ale wizja nuklearnej anihilacji była przerażająca. 
+- Jaką mam pewność, że nie kłamiesz? Głowice nuklearne to jednak zaawansowana technologia, a z tego co mi wiadomo krucho z tym u was. - Spytał gdy tylko pozbierał myśli do kupy. 
+- Nie masz żadnej pewności. Na twoim miejscu też byłbym podejrzliwy. Co do technologii. Od jakiegoś czasu wynosimy satelity na orbitę i odbudowujemy systemy komunikacyjne. Jaki byłby dla nas problem zrobić kilka głowic tak na wszelki wypadek. Dokładnie trzy o mocy przewyższającej trzydzieści kiloton oraz osiemnaście mniejszych. Wszystko gotowe do wystrzału w każdej chwili. 
+Alfa zamyślił się na chwilę. 
+- Kappa w liście wspominał coś o satelitach. To chyba mogłaby być prawda. - Powiedział w głowie i kontynuował na głos. - Więc do czego jestem ci potrzebny? Rozumiem, że bardzo zależy ci na życiu Intalczyków. 
+- Nie tyle co zależy mi na życiu ludzi co na samej kulturze. To byłaby wielka strada dla cywilizacji ludzkiej. Tyle lat sztuki i architektury zostałoby spopielonych w ciągu kilku minut. - Przerwał mu i wyjaśnił. Odpowiadając na twoje pytanie. Chcę zacząć rozmowy pokojowe z królem Intal. Jakiekolwiek. Kilka tygodni może zrobić sporą różnicę w tym konflikcie. 
+- Nie innej zaawansowanej broni konwencjonalnej, aby wygrać wojnę? 
+- Śmigłowce, czołgi, karabinym maszynowe. To nie wystarczy, gdy sam korpus ekspedycyjny przewyższa swoją liczną nasz personel cywilny i wojskowy razem wzięty. Owszem odeprzemy pierwsze, drugie, może nawet trzecie natarcie, ale przy tym wykrwawimy się do ostatniego obiektu 258. To ryzyko na które nas nie stać, więc opcja atomowa jest jak najbardziej rozważana. 
+- Król nie podejmie rozmów. Chodzą plotki, że Katarina nie jest nawet jego córką. 
+- Przykro mi to słyszeć. 
+- Będąc szczerym, to król nawet nie jest na szczycie hierarchii. Jeśli chcesz rozpocząć rozmowy pokojowe musisz zacząć od członków najwyżej rady. To nie jest oficjalna organizacja. Bardziej tajna loża pociągająca za sznurki. 
+- Kto do niej należy?
+- Między innymi ja, ale jak widać, jestem uważany za zdrajcę, więc nie mam dużo do powiedzenia. Może gdyby udało by się wyczyścić moje dobre imię, to coś by się w tej kwestii zmieniło, ale nie liczyłbym na to na twoim miejscu. 
+Zamyślił się chwilę. 
+- Zakładam, że większość rady przebywa w forcie Strong. Dostanie się do nich byłoby samobójstwem. 
+- Bardziej sporym utrudnieniem. 
+- Jednak właściciele banku AZBZ mogliby nam pomóc. Zawsze mieliśmy dobre relacje. Zazwyczaj
+- Na początek starczy, aby na nasz widok nie zaczęli strzelać. 
+- Są to dwa obiekty 258 o kodzie seryjnym AZ oraz BZ.
+- Czyli nazwa instytucji, nie jest tak kreatywna jak się tego spodziewałem. Gdzie moglibyśmy ich spotkać? 
+- W zamku na zachód od głównego skarbca banku. To pięć dni drogi konno. 
+- Miło to słyszeć. Wyruszymy za dwa dni. Mam jeszcze kilka spraw do załatwienia. 
