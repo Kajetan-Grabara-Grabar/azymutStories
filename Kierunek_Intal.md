@@ -100,3 +100,60 @@ Cipher wstał i przeciągnął się rozciągając plecy.
 — Kilka pomieszczeń dalej mamy ogród warzywny tylko na użytek naszej kuchni — dodał Henrich, odrywając wzrok od e-papieru. — Więc jedzenie często jest świeże.
 
 — Świeże, jeśli kuchnia ma wystarczająco czasu na umycie roślin z żelu i syntetycznej gleby. W innych przypadkach idą konserwy i mrożonki — zakończył były łowca.
+
+
+Czerwone światło zalewało ciasną ładownię wahadłowca. Kronos siedział w ścisku, trzymając kurczowo przed sobą sto dwudziestolitrowy plecak wypchany po brzegi sprzętem, którego będzie potrzebował w najbliższych dniach. Przednie dopalacze plazmowe uruchomiły się charakterystycznym piskiem. Wahadłowcem szarpnęło, gdy zaczął wyhamowywać. Ramię Hadesa wbiło mu się w bok, dociskając go do ściany. Ciążenie znacznie spadło. Latające skrzydło, wytracając pęd, traciło niemal całą siłę nośną. Odpaliły się kolejne dopalacze, tym razem umieszczone pod samolotem. Znowu szarpnęło. Wahadłowiec zaczął wyrównywać lot.
+
+— Dziękujemy za skorzystanie z oferty naszych linii lotniczych. Mamy nadzieję, że mieli Państwo udany lot — odezwał się pilot przez kilka głośników w ładowni. — Życzymy miłego pobytu.
+
+Gdy tylko skończył mówić, wąski trap opuścił się na dwóch siłownikach. Do środka wdarł się gwałtowny podmuch morskiej bryzy. Komandosi, jeden po drugim, wstawali i wybiegali z pojazdu. Ostatni był Kronos. Trzymając plecak przed sobą i lekko się pochylając, aby nie uderzyć głową o niski sufit, zeskoczył na chyboczący się od wiatru i fal pokład intalskiego okrętu handlowego. Podążając za swoimi ludźmi, zbiegł z nadbudówki na rufie, aby zrobić miejsce ekipie załadunkowej. Patrzył, jak wahadłowiec unosi się kilka metrów nad ciemnym, nocnym morzem. Silniki plazmowe pluły niebieskimi językami ognia, rozpryskując wodę. Jeden z dwóch myśliwców eskorty, krążący wokół okrętu, bez ostrzeżenia obniżył lot i ustawiając się równolegle do burty statku, przeleciał bardzo blisko. Wahadłowiec zachwiał się, ale nie stracił równowagi, a załadunek skrzyń potrwał jeszcze kilka chwil. Doświadczona ekipa przymocowywała ładunek do siedzeń za pomocą grubych taśm, aby nic nie mogło się zerwać podczas lotu. Załoga, nie mając na pokładzie niczego żywego, miała tendencję do bardziej dynamicznego latania.
+
+Ostatni członek załogi statku zbiegł z rampy. Nawigator przeprowadził jeszcze szybkie oględziny i zniknął gdzieś w trzewiach maszyny. Trap został podniesiony. Górne dopalacze plazmowe wypaliły, a wahadłowiec powoli zaczął odsuwać się od statku. Czarny trójkąt nabierał pędu. Dolne silniki przestały być skierowane pionowo w dół i zaczęły kierować plazmę bezpośrednio do tyłu. Po kolejnych piętnastu sekundach silniki jonowe błysnęły białym światłem. Wahadłowiec ustawił się pod bardzo ostrym kątem i zaczął wspinać się prawie pionowo, znikając wśród gęstych chmur.
+– Jak zwykle się popisują – stwierdził Neptun, stając bezpośrednio za Kronosem.  
+– Czują się pewnie, to dobrze – odpowiedział Kronos, odwracając się i podając rękę zastępcy Zeusa na przywitanie. – Pierwszy transport za nami. Jeszcze dwa. – Spojrzał na zegarek. – Jeśli nie będzie opóźnień, to może zdążymy przed świtem. Jesteś pewien, że to bezpieczne miejsce?  
+Neptun machnął ręką, poganiając swoich ludzi wnoszących na pokład kolejne skrzynie.  
+– Przeanalizowałem mapy popularnych łowisk, jakie mamy na stanie, jeszcze raz i stwierdziłem, że korzystają z innego wzorca mili, niż wcześniej przypuszczałem. Jestem prawie pewien, że tym razem nie wpadniemy na porannych poławiaczy.
+
+Zaczęli schodzić pod pokład po stromej drabinie. Kronos odłożył swój ciężki plecak na stos razem z resztą.  
+– Jak długo zajmie nam dopłynięcie do portu? – zapytał.  
+Neptun podrapał się po głowie.  
+– Jeśli uda nam się zamontować trzeci maszt w miarę szybko, to myślę, że zdążymy na obiad. O ile wiatry będą pomyślne. W najgorszym przypadku będziemy na miejscu pod wieczór.  
+– Brakuje mi Argosa, te wiosła naprawdę potrafiły się przydać.  
+– Argos miał swoje plusy, z tym się nie kłócę. Trochę szkoda, że musieliśmy go oddać Inferno. Jednak zapewniam cię, że Akis jest równie niezawodny.  
+Kronos spojrzał prosto w oczy Neptunowi.  
+– Akis? Myślałem, że to Eol.  
+– Niestety, Eol jest w stoczni. Gdy Inferno wysadziło fort, fala tsunami wypchnęła go na brzeg i mocno pokiereszowała. Akisa kupiliśmy niedawno, bo żaden z naszych pozostałych statków nie nadawał się do przerzucania ładunków z i na wahadłowiec.
+
+
+Alfa wraz z Sigmą siedzieli na stosie drewnianych skrzyń, opierając się o zwoje żółtego płótna żaglowego, popijając intalskie wino z dzbanka. Obserwowali krzątających się na molo ludzi z Odyseusza, przebranych za dokerów i marynarzy. Pomimo świetnego przebrania nie dało się ukryć, że przedmioty wynoszone na ląd i pospiesznie ukrywane pośród normalnych towarów kompletnie odstają od otoczenia. Plecaki pokryte czarnym kamuflażem, polimerowe skrzynie, a przede wszystkim broń, której w Intal nie sposób było znaleźć, dla każdego przypadkowego przechodnia wydawałyby się co najmniej podejrzane.
+
+Czterej przyjaciele, pomimo względnej niewoli, byli zaskakująco dobrze traktowani. Alfa tłumaczył to sobie przysłowiem „Wróg twojego wroga jest twoim przyjacielem”, ale mimo wszystko coś podpowiadało mu, że gościna szybko się skończy, gdy przestaną być potrzebni. Jednak nie był pewien, do czego. Mogli swobodnie poruszać się po magazynach i dokach, nie licząc pewnych pomieszczeń, które najwyraźniej zawierały coś tajnego lub niebezpiecznego. Praktycznie zawsze ktoś ich obserwował. Uzbrojeni strażnicy skrywali się w każdym zakamarku przystani, więc ucieczka nie byłaby taka prosta. Poza tym nie mieli gdzie uciekać. W całym porcie, na niemal każdej tablicy ogłoszeniowej, wisiały ich listy gończe. Przestali się golić, aby mieć większe szanse zmylenia policji w razie potencjalnych kłopotów.
+- Nieźle sobie radzą. - Mówił po japońsku obawiając się podsłuchu. - Ogarnięcie tak dużej operacji i to jeszcze w pod samym nosem Intalczyków... No na pewno nie było i nie jest to proste. 
+- Jak to mawiają. Najciemniej pod latarnią. - Uśmiechnął się pod nosem Sigma ciągnąc łyk z dzbanka. 
+- W tym przypadku dosłownie. - Spojrzał na sam czubek pobliskiej latarnii na której jeden z komandosów pod przykrywką latarnika oglądał morze przez lornetkę. 
+- Sądzisz, że Odyseusz Potrójne Zero lub papa Grek... Spodziewam się, że to ta sama soba.. ale czy sądzisz, że to może być Kronos? Ten Kronos? - Spytał nie pewnie Sigma nie kryjąc lęku. 
+- Nawet jeśli, to nie mamy pewności, że nas pamięta. Wielu z tych ludzi przypomina łowców z oryginalnego Odyseusza, ale są to zupełnie inni ludzie z wiedzą. 
+Napili się jeszcze raz z dzbanka. 
+- Ciekawe, który bunkier Azymutu przegapiliśmy. - Zaśmiał się Alfa.
+- Według danych jakie zebrał Merlin, wyczyściliśmy wszystkie. 
+- Znikąd nie mogli się pojawić. 
+- Myślę... Może źle założyliśmy, że Azymut był już na wykończeniu, gdy no wiesz... - Przełknął ślinę. - Ostatni raz walczyliśmy z Kronosem. Odyseuszowi i nam skończyła się amunicja w powie walki. My nie mieliśmy skąd jej brać. Zapasy już dawno się pokończyły, a oni? Mieli przecież najlepsze zaplecze logistyczne na świecie. Gdyby było inaczej, to łowcy nie lataliby po wszystkich kontynentach i nie zbierali kryształowych dysków z opuszczonych placówek. 
+- Co chcesz przez to powiedzieć? 
+- A co jeśli Azymut nadal budował swoje schrony jeszcze długo po końcu ludzkości? Nie mówię tutaj o Azji, bo to byśmy zauważyli, ale tutaj w Europie. To by było jedyne wyjaśnienie dlaczego lista Merlina była niekompletna. 
+Alfa dopił resztę Intalskiego wina. 
+- Może, ale nie jestem przekonany do twojej teorii. Równie dobrze bazy danych mogłyby być niepełne. 
+- To fakt. Niemniej jednak Azymut mógł być w nieco lepszej kondycji niż zakładaliśmy. 
+- To dlaczego się zahibernowali? Każdą placówkę do jakiej się dostaliśmy zastaliśmy nieobsadzoną z personelem śpiącym w kapsułach. 
+- Tego też nie wiem. 
+
+Zaszedł ich od tyłu jeden z komandosów pod przykrywką portowego dockera. Wysoki na prawie dwa i pół metra mężczyzna ubrany w wełnianą czapkę nasuniętą na uszy, biało-niebieski podarty i brudny podkoszulek luźno zwisający z muskularnego torsu. Wyglądu typowego pracownika portowego dopełniały grube spodnie wykonane z płótna żaglowego. Niezwykle wytrzymałe i dość niewygodne. Herakles, bo tak miał na imię skrzyżował ramiona i odezwał się w nienagannym Intalskim:
+- Nasz lider chciałby się z tobą zobaczyć. - Zwrócił się do Alfy.
+
+Sigma, klepnął swojego przyjaciela w ramię i powiedział po japońsku:
+- Powodzenia. 
+Herakles pojrzał na niego podjerzliwie. Nie znał tego języka Czarny rycerz wstał i otrzepał spodnie z kurzy i trocin.
+- Mogę wiedzieć, czego odemnie chce? - Spytał. 
+- Nie sprecyzował. - Odpowiedział lakonicznie. 
+- A wiec nie karzmy mu czekać. - Uśmiechnął się próbując zamaskować stres. 
+
+
