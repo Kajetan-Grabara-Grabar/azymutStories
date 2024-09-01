@@ -1,7 +1,7 @@
 
 Matteo prowadził Czarownicę na śniadanie, przestawiając jej nowy zespół. 
 
-- To jest twój nowy zespół – powiedział, wskazując po kolei poszczególnych członków. – Wiewiórka, była profesor na Uniwersytecie Paryskim, biolożka i mutantolożka. To z nią będziesz najwięcej współpracować. Henrich, jeden z najlepszych klonerów, jakich mamy, oraz mój osobisty asystent. A na końcu siedzi Cipher, nasz specjalista do spraw komputerów. Były łowczy Azymutu, znak wywoławczy: Żniwiarz Pięć. Jeden z twórców legendarnego wirusa Ragnarock. Zespole, oto Czarownica, nasz nowy członek. Specjalistka od botaniki i kultury Intalskiej.
+– To jest twój nowy zespół – powiedział, wskazując po kolei poszczególnych członków. – Wiewiórka, była profesor na Uniwersytecie Paryskim, biolożka i mutantolożka. To z nią będziesz najwięcej współpracować. Henrich, jeden z najlepszych klonerów, jakich mamy, oraz mój osobisty asystent. A na końcu siedzi Cipher, nasz specjalista do spraw komputerów. Były łowczy Azymutu, znak wywoławczy: Żniwiarz Pięć. Jeden z twórców legendarnego wirusa Ragnarock. Zespole, oto Czarownica, nasz nowy członek. Specjalistka od botaniki i kultury Intalskiej.
 
 – Miło was poznać – powiedziała Czarownica i podała wszystkim ręce na przywitanie.
 
