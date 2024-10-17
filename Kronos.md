@@ -73,4 +73,4 @@ Wyłączył komunikaty na piętnaście minut.
 - Drugi, po co ci to wiedzieć? 
 - Szok po wyjściu z drukarki... sir. - Tak chyba mówią żołnierze, nie? - Spytał sam siebie.
 - Kurwa, XZE znowu przysłał mi niedorobionego szeregowca. - Chwycił się za głowę.
-- Plan odbudowy Azymutu, etap pierwszy zwany potocznie epoką kamienia. Cokolwiek się wydarzyło po dwa tysiące dziewięćdziesiątym ósmym, musiało być spektakularne. Ciekawe co się stało z resztą? - Mówił do siebie zakładając nowy mundur. 
+- Plan odbudowy Azymutu, etap pierwszy zwany potocznie epoką kamienia. Cokolwiek się wydarzyło po dwa tysiące dziewięćdziesiątym ósmym, musiało być spektakularne. Ciekawe co się stało z resztą łowców? - Mówił do siebie zakładając nowy mundur. 
