@@ -64,7 +64,7 @@ Wytarł się ponownie i zdjął z wieszaka zielone wojskowe spodnie. Ku jego po
 Wyłączył komunikaty na piętnaście minut. 
 
 - Bardzo nie dobrze. 
-- Co tak się gapisz? Ubieraj się! Nie mamy czasu do stracenia! Wykrzyczał facet przypominający wyglądem weterana wojny w Wietnamie, o której Kronos czytał w książkach historycznych. 
+- Co tak się gapisz? Ubieraj się! Nie mamy czasu do stracenia! - Wykrzyczał facet przypominający wyglądem weterana wojny w Wietnamie, o której Kronos czytał w książkach historycznych. 
 
 Łowca spojrzał na mężczyznę. Szacował jego potencjalną siłę, refleks i umiejętności. 
 
