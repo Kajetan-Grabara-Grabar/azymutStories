@@ -66,10 +66,10 @@ Wyłączył komunikaty na piętnaście minut.
 - Bardzo nie dobrze. 
 - Co tak się gapisz? Ubieraj się! Nie mamy czasu do stracenia! - Wykrzyczał facet przypominający wyglądem weterana wojny w Wietnamie, o której Kronos czytał w książkach historycznych. 
 
-Łowca spojrzał na mężczyznę. Szacował jego potencjalną siłę, refleks i umiejętności. 
+Łowca spojrzał na mężczyznę. Szacował jego potencjalną siłę, refleks i umiejętności. Zastanawiał się, czy nie powalić żołnierza i uciec. 
 
 - Głuchy jesteś? 
-- Który mamy rok? - Spytał. 
+- Który mamy rok? - Spytał.
 - Drugi, po co ci to wiedzieć? 
 - Szok po wyjściu z drukarki... sir. - Tak chyba mówią żołnierze, nie? - Spytał sam siebie.
 - Kurwa, XZE znowu przysłał mi niedorobionego szeregowca. - Chwycił się za głowę.
