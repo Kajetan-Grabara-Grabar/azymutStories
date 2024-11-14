@@ -164,3 +164,70 @@ Dowódca Inferno spojrzał na naukowca z gniewem i ruszył zadać cios. Kronos 
 Przeleciał nad nimi śmigłowiec poprzeczno-wirnikowy i zaczął lądować na polanie kilometr od nich. 
 
 - A to niespodzianka. Mimo wszystko Azymut nie jest już w epoce kamienia łupanego, może nawet produkują własne komputery. - Powiedział w głowie podążając za doktorem. 
+
+
+Kronos poprawił stopery w uszach zrobione z kawałka czegoś co przypominało bawełnę świeżo zebraną z krzaka. Silniki śmigłowca usytuowane centralnie nad przestronną ładownią zalewały ją przerażającym warkotem. W tej chwili marzył jedynie o słuchawkach aktywnych. Poprawił trzymany pomiędzy nogami karabin. Była to dziwna konstrukcja przypominająca Amerykańską broń z czasów wojny w Wietnamie, jak wszystko co miała na wyposażeniu jednostka Inferno, ale była uproszczona w względem oryginału. Drogie polimery zastąpiono drewnem, a samo wykończenie pozostawiało wiele do życzenia. 
+
+Sięgnął do plecaka i wyciągnął manierkę, która w tym przypadku była zwykłą tykwą zatkaną przeciekającym korkiem. Wziął łyk i wcisnął ją z powrotem pomiędzy kurtkę, a pakunek z suszonym mięsem, serem i orzechami. Pod względem wyposażenia swoich elitarnych sił, Azymut, lub jak gdzieś wysłyszał Sojusz, stawiał na absolutne minimum. 
+
+Inferno Potrójne Zero spojrzał na niego gniewnie. Najprawdopodobniej nie podobało mu się, że jeden z jego ludzi robi cokolwiek innego niż spokojne siedzenie i gapienie się na ścianę. Kronos zignorował go kompletnie. 
+
+Nie minęło dużo czasu nim wylądowali. Standardowo wszyscy żołnierze zbiegli po trapie na leśną polanę i uformowali pierścień wokół ledwo dotykającego ziemię śmigłowca, który nie marnując ani mililitra cennego paliwa prawie od razu po poszczeniu ładowni przez Zero, nabrał wysokości i odleciał w stronę głównego lotniska. 
+
+Na lakonicznej odprawie krótko przed misją dowiedzieli się, że ich celem jest znalezienie i zabezpieczenie jakichkolwiek zasobów, które mogą się przydać w odbudowanie Azymutu. Nie padły konkrety, ale łowca domyślał się, że nie chodzi o stare kable czy zaśniedziałe płytki drukowane. Przy okazji udało mu się dowiedzieć jaki numer miała opuszczona placówka Azymutu, którą mieli z szabrować. Ku jego zaskoczeniu znajdowali się w Europie, a ku uradowaniu, to konkretne miejsce było wprost usiane mniejszymi i większymi podziemnymi kompleksami. Ideale miejsce na świeży start. Ta konkretna baza była jedną z największych w regionie. Monolityczna struktura, tworzyła gąszcz tuneli i pomieszczeń przypominający labirynt. Dostatecznie duży, aby w nim zabłądzić i umrzeć z głodu. Kronos, jako, że był łowcą i jedym z jego zadań było sprzątanie podziemnych kompleksów z mutantów i innych tworów Azymutu, która czasami uciekały ze swoich klatek siejąc terror, posiadał niemal fotograficzną pamięć wszystkich typów placówek. Doskonale wiedział, gdzie musi się kierować, aby znaleść najlepsze łupy. 
+
+Kilkanaście minut marszu od prowizorycznego lądowiska znaleźli się na miejscu. W środku lasu przywitała ich dziura w ziemi o średnicy mniej więcej czterech metrów. Z popękanego, trwalszego od skał żelbetu zwisały długie liany bluszczu niknące w ciemnościach. 
+- To tutaj, numery od pięć do dwadzieścia dziewięć schodzą, reszta pilnuje! - Wydarł się Zero, a grupa specjalnie oddelegowanych do tego ludzi zaczęła montować drabinę sznurową. 
+
+Kronos wykorzystał chwilę i zajrzał w głąb nietypowej jamy. 
+- To hangar. - Powiedział sam do siebie. - Stoimy na wrotach. - Rozejrzał się wokół. - Tu nie powinno być ani centymetra ziemi ani tym bardziej drzew. Ile mogło być lat, trzysta, czterysta, więcej? 
+- Dwadzieścia Jeden, schodzisz pierwszy. - Powiedział dowódca z ciężkim do ukrycia uśmieszkiem. 
+
+Łowca skinął głową. Nie miał nic do powiedzenia w tej sytuacji. Upewnił się, że drabina utrzyma jego wagę, przerzucił karabin na plecy i szedł na sam dół. Wylądował po pac w wodzie. Wyjął z plecaka latarkę i upewnił się, że gdzieś w cieniu nie ukrywa się mutant, który mógłby okazać się zagrożeniem dla misji. 
+
+- Czysto. - Krzyknął. 
+
+Oparł kolbę karabinu na prawym ramieniu i ruszył do przodu brodząc w brudnej deszczówce. Za nim reszta oddziału schodziła po dyndającej drabinie. 
+- Cholera. - Ktoś powiedział potykając się o coś pod mętną powierzchnią i prawie się przewracając. 
+
+Dno było bardzo nie równe. Przez lata fragmenty roślin zrzucone tu przez wiatr, kamienie zepchnięte przez spływającą wodą, czy chociażby zwierzęta, których kości pękały pod ciężarem wojskowych butów, przykryły asfaltową płytę grubą warstwą osadu. 
+
+Podszedł do bardzo stromych metalowych schodów prowadzących na mała platformę zawieszoną miej więcej w połowie wysokości między sufitem a wodą. Materiał pomimo lat i nieprzyjaznych warunków był w świetnej kondycji. Azymut w swoich założeniach nie szykował się na przetrwanie końca świata w podziemnych bunkrach. Chcieli podbijać gwiazdy. Obiekty 258 były do tego idealne. Nie starzały się, były odporne na choroby, promieniowanie, toksyny, a przede wszystkich mogłoby być hibernowane w specjalnych kapsułach przez bardzo długi czas. A żeby i to było możliwe, materiały, które wykorzystywał Azymut musiały być odpowiednio wytrzymalsze od standardowych. Cokolwiek projektowali nie miało się psuć po dwóch latach gwarancji. Było stworzone, aby trwać. 
+
+- Co robisz? - Spytał jeden z żołnierzy, gdy Kronos zaczął wdrapywać się na platformę. 
+- Wykonuję misję. - Odpowiedział sucho. 
+- Twój pośpiech zgubi nasz wszystkich. - Mówił ruszając za łowcą. 
+- Po pierwsze. Oficerowie zostali na górze. Jesteśmy tutaj bez żadnego formalnego dowodzącego. Po drugie, gdyby coś miało nas zaatakować zrobiłoby to od razu. Po trzecie. Rozejrzyj się. Pomieszczenia na wysokości hangaru są z pewnością zalane. Musimy się przedostać dalej, a jak dla mnie to jedyne przejście. 
+
+Przyklęknął na wpół rozsuniętych pancernych drzwiach i przejechał ręką po dziurze, która kiedyś była panelem dostępowym. Poświecił latarką oglądając poszarpane siłowniki hydrauliczne. 
+- Jak ci na imię? - Spytał oceniając zniszczenia. 
+- Siedem... - Odpowiedział zakłopotany. 
+- Cholera, nie mogę się przywyczaić. Masz jakieś przezwisko? 
+Odpowiedziała mu cisza. 
+- Macie coś? - Spytała Piętnastka. Jedna z niewielu kobiet w oddziale. 
+
+Kronos obejrzał się, czy ktoś jeszcze nie wpadł na genialny pomysł dołączenia do niego, ale reszta jednostki rozproszyła się po hangarze próbując dostać się do sąsiadujących hal. 
+
+- Tak. Podążamy drogą kogoś, kto najprawdopodobniej również zrobił dziurę w suficie. Widzicie te ślady? - Przejechał palcem po poszarpanej blasze, którą pokryta była futryna. 
+- Co w tym niezwykłego? - Spytał Siódemka. 
+- To ślady po wybuchu... najprawdopodobniej przeciwpancernej miny kumulacyjnej. Jak na mój gust, ładunek był zdecydowanie za mocny. Ktokolwiek to zrobił, bardzo chciał się dostać do środka, ale nie wiedział jak to zrobić. 
+- Mutanci?  - Spytała Piętnastka. Pochylając się tuż obok jego ramienia. 
+- A widziałaś kiedyś takiego z bronią palną? - Odpowiedział pytaniem na pytanie. 
+- Oczywiście, że nie, to moja pierwsza misja. Nigdy nie widziałam mutanta. 
+- Moja również. - Dodał Siódemka. 
+- Dobrze. - Westchnął. Miał nadzieję, że dowie się czegoś ważnego. - Zakładam, że to nie oni. Ślad jest stary, nie ma śladu po płynie hydraulicznym. Pomóżcie mi rozsunąć drzwi. 
+
+Pancerna płyta stawiała sporty opór, ale w trójkę udało im się zrobić szparę na tyle dużą, że mogli się przez nią przecisnąć. Wątłe światło latarek rozświetliło korytarz z dziesiątkami zamkniętych pokoi. Kronos poświecił na brudną od zaschniętego błota podłogę. 
+- Bądźcie w pełnej gotowości. Nie jestem pewien, czy jesteśmy tu sami. - Powiedział. 
+
+Wszędzie było widać ślady pazurzastych łap. Nie był wstanie ocenić ich wieku. Rozejrzał się jeszcze wokół, ale nigdzie nie widział odcisku buta. Wejście zostało wysadzone na długo przed naniesieniem osadu. 
+
+- Co dalej? - Spytał Siódemka dość zniecierpliwionym głosem. 
+- Spróbujcie dostać się gdziekolwiek. Ja sprawdzę, czy jest bezpiecznie. 
+
+Biokomputer w jego głowie wyświetlił mu przed oczami mapę placówki i najkrótszą trasę do archiwum. 
+
+- Na odprawie mówili, aby trzymać się razem. - Wspomniała kobieta. 
+- Tak, ale wspomnieli też, jak ważna dla Sojuszu jest ta misja. Nie marnujmy czasu na mniej istotne zadania. Ten pokój... - Wskazał na drzwi prowadzące do swego rodzaju składzika na miotły, według danych z niego czipu. - To dobre miejsce, żeby zacząć. Gdyby coś się działo, po prostu mie zawołajcie. 
+
+Nie czekając na reakcje ruszył w ciemność. 
