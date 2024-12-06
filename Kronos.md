@@ -230,4 +230,45 @@ Biokomputer w jego głowie wyświetlił mu przed oczami mapę placówki i najkr
 - Na odprawie mówili, aby trzymać się razem. - Wspomniała kobieta. 
 - Tak, ale wspomnieli też, jak ważna dla Sojuszu jest ta misja. Nie marnujmy czasu na mniej istotne zadania. Ten pokój... - Wskazał na drzwi prowadzące do swego rodzaju składzika na miotły, według danych z niego czipu. - To dobre miejsce, żeby zacząć. Gdyby coś się działo, po prostu mie zawołajcie. 
 
-Nie czekając na reakcje ruszył w ciemność. 
+Siódemka wyciągnął z plecaka tomahawk, ale nie byle jaki tomahawk. Identyczny jaki łowcy Azymutu wykorzystywali na codzień. Wykonany z czarnego tytanu, był jednocześnie lekki i bardzo wytrzymały. Choć Kronos preferował obusieczne miecze lub gladiusy, jak nazywali takie krótsze z ostrzem po jednej stronie i piłą do drewna po drugiej. To poczuł się zazdrosny. Mężczyzna obrócił go i trzymając za głownię wbił spłaszczoną końcówkę trzonka pomiędzy drzwi a futrynę. Zamek nie stawiał oporu i po solidniejszym pchnięciu pękł. 
+- Jakieś skrzynki. - Powiedziała Piętnaska świecąc latarką przez zrobioną szparę. 
+
+Kronos odwrócił się nie czekając na dalszy rozwój i ruszył w głąb ciemnego korytarza. Chwycił latarkę w lewą ręką i podtrzymywał nią karabin w taki sposób, aby widzieć w co celuje. Czym dalej szedł, tym ilość błota była mniejsza, a przez to ślady mniej wyraźnie. 
+- Brakuje śladów żerowania. - Twierdził patrząc pod nogi. - Spodziewałbym się jakiś szczątków zwierząt czy coś takiego. Teraz pytanie, kto ostatni zamkną za sobą drzwi? 
+
+Ściany nie nosiły śladów uszkodzeń, ani zadrapań. To samo tyczyło się rozsuwanych drzwi, których Kronos minął już z tuzin. Wszystko było bardzo dobrze zachowane, aż zbyt dobrze. Na rozwidleniu skręcił w prawo, potem dwa razy w lewo. Przystanął gdy zobaczył coś dziwnego. Dwa szkielety przytwierdzone do drucianego stojaka stały przed śluzą z wysadzonym panelem sterowania. Normalnie dość jasny beton był osmolony od wybuchu. Łowca przewiesił broń przez plecy i podszedł bliżej patrząc pod nogi czy nie wdeptuje w jakąś pułapkę. 
+
+Kontrowersyjne dzieło sztuki składało się z kości mutantów należących do conajmniej kilku osobników, jak nie kilkunastu. Ktokolwiek je tworzył nie znał się na ich anatomii. Prawy szkielet z czaszką przypominającą taką bizonią, trzymał w prawej ręce coś w rodzaju berła lub maczugi. Wyglądał jakby odprawiał jakiś dziwny czarnomagiczny rytuał, albo po prostu szykował się do walki. Druga figura, trochę niżna od poprzedniej miała dziwnie wykrzywione ręce. Nie przypominały one niczego szczególnego. Jednak możliwe, że autor chciał przedstawić jakąś chwilę grozy bądź bólu. Kronos ostrożnie przesunął je robiąc sobie dojście do wysadzonego panelu. 
+
+Tym razem uszkodzenia były mniejsze pomimo prawdopodobnie odpalenia kilku ładunków. Same wrota były bardziej masywne. Chroniły jedną z głównych klatek schodowych placówki. Zajrzał do środka i o cenił stan zamka. 
+- Nie ma kompletnie nic. Mechanizm został usunięty. - Powiedział sam do siebie. 
+
+Zaparł się nogą i pociągnął drzwi z całeś siły. Tym razem pył nie blokował rolek i wszystko ruszyło bez większych problemów. Postanowił za sobą nie zasuwać niczego, gdyby miał mieć problem otworzyć je z powrotem. 
+
+Dalej było jeszcze dziwniej. Wnętrze przypominające takie w łodzi podwodnej było usiane różnymi napisami i piktogramami. Wszystko zapisane w jakimś dziwnych językach, których Kronos nie kojarzył. Rodzaje pisma mocno się od siebie różniły. Jedne przypominały trochę cyrylicę, drugie jakieś runy, a jeszcze inne nie przypominały nic szczególnego, może poza jakąś uproszczoną wersją egipskich hieroglifów. Jego wzrok na zastygł na chwilę na krótkiej notatce zapisanej koślawym alfabetem łacińskim. Podszedł bliżej i przyklęknął, aby rozczytać wiadomość. 
+- Co, co to do cholery jest? - Mówił sam do siebie w głowie. - Co drugie słowo jest angielskie, co trzecie japońskie zapisane fonetyczne, a reszta to jakaś ich mieszanka. 
+
+Komputer w jego głowie wariował próbując pojąć nowy język. Była to przydatna funkcja, ale tekst był zbyt krótki, aby miało to większy sens. 
+
+- Czarny Rycerz? Zakon Czarnych Rycerzy..., klątwa, pieczętuje. Śmierć. - Czytał poszczególne wyrazy próbując odnaleźć sens. - Pradawne zło. Strzeż się. W każdym razie chodzi o jakąś klątwę wiążącą pradawne zło. 
+
+Wstał z zmieni. 
+
+- Alfa czasami określał swoją jednostkę jako rycerze. Czyżby po tym jak wyeliminował mnie i resztę łowców z gry, zaczął plądrować schrony? Brzmi to całkiem sensownie. Jeśli zadali sobie tyle trudu, aby odstraszyć potencjalnych szabrowników, to znaczy, że musieli coś zostawić. 
+
+Otworzył drugie wrota śluzy i wszedł do właściwej części kompleksu. Jego oczom ukazała się industrialna klatka schodowa, ułożona w formie kwadratowej spirali, oplatającej komin o średnicy pięciu metrów. Spiralne schody stopniowo opadały w dół, znikając w mrocznej czeluści, której dna nie sposób było dostrzec. Od razu poczuł podmuch powietrza – znak, że systemy wentylacji, korzystające z energii geotermalnej, nadal funkcjonowały i dostarczały świeże powietrze nawet na najniższe poziomy. System, choć mało wydajny, nie potrzebował elektryczności.
+
+Kronos poczuł przypływ pewności siebie. Zbiegał po schodach, kroki jego butów odbijały się echem od ścian, gdy mijał kolejne poziomy oznakowane dziurami po wybuchach, prowadzącymi do części laboratoryjnej. Lecz piętra mieszkalne, biurowe oraz magazynowe, niemalże nietknięte, układały się w surrealistyczny obraz chwilowej nietykalności. Każda z placówek Azymutu  miała swoją unikalną funkcję — od ogromnych magazynów po skomplikowane laboratoria i biura. Te ostatnie, usytuowane zwykle w centrach miejskich, były dla Kronosa mniej znane. Jego misją była obrona i eliminacja zagrożeń, które powstawały w wyniku niekontrolowanego rozprzestrzenienia się mutantów z najgłębszych czeluści kompleksu, ukrytych przed wzrokiem mniej wtajemniczonych członków organizacji. 
+
+Schody, które pokonywał, były paradoksalnie najmniej uczęszczanym środkiem komunikacji. Obwieszczały swoją obecność jedynie w sytuacjach awaryjnych, kiedy główne trakcje transportowe uległy niespodziewanemu zatrzymaniu. Co niezwykłe, ich istnienie często ignorowane było w oficjalnych dokumentach ewakuacyjnych. 
+
+Przystanął przy kolejnym wejściu prowadzącym na poziom magazynowy. Portal, jak wiele innych w tym zatęchłym labiryncie, nie wyróżniał się niczym szczególnym. Wyglądał niemal identycznie, jak wszystkie inne. Wyciągnął ciężką kratę wentylacyjną z wyrobionych z czasem uchwytów i ostrożnie odłożył ją na bok. Echo uderzenia metalu o ziemię zawirowało w ciszy, przerywanej co jakiś czas jedynie dalekim szumem systemu wentylacyjnego.
+
+Położył się na zimnej posadzce i sięgnął w głąb szerokiego na pół metra otworu. Namacał długi metalowy przedmiot przypominający klucz do kół. Wyciągnął go z mroku i wsadził kratę z powrotem na miejsce, upewniając się, że żaden ślad jego obecności nie zostanie po nocy.
+
+Sięgnął do pasa i wyjął nóż osadzony na rękojeści zrobionej z jeleniego rogu. 
+Wbił ostrze w ścianę, celując precyzyjnie pod panelem dostępowym. Idealnie trafił w niewidoczną w świetle latarki szczelinę, starannie zatkaną żywicą. Łowca lekko uderzył w rękojeść i z cichym kliknięciem mała metalowa płyta odskoczyła, odsłaniając sześciokątne wgłębienie. 
+
+Wsunął korbę w gniazdo i zaczął ją obracać, przyglądając się, jak masywne drzwi powoli zaczynają się rozsuwać. Mechanizm działał z gracją, której mógłby pozazdrościć najlepszy zegarmistrz. Był to jeden z wielu sekretów tego miejsca, znany tylko nielicznym wtajemniczonym. 
+
+Komputer w jego głowie wydrukował ostrzeżenie o nagłym wzroście stężenia argonu. Gazu wykorzystywanego do zabezpieczania przed utlenianiem. 
