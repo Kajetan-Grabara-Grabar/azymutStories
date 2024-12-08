@@ -269,6 +269,74 @@ Położył się na zimnej posadzce i sięgnął w głąb szerokiego na pół met
 Sięgnął do pasa i wyjął nóż osadzony na rękojeści zrobionej z jeleniego rogu. 
 Wbił ostrze w ścianę, celując precyzyjnie pod panelem dostępowym. Idealnie trafił w niewidoczną w świetle latarki szczelinę, starannie zatkaną żywicą. Łowca lekko uderzył w rękojeść i z cichym kliknięciem mała metalowa płyta odskoczyła, odsłaniając sześciokątne wgłębienie. 
 
-Wsunął korbę w gniazdo i zaczął ją obracać, przyglądając się, jak masywne drzwi powoli zaczynają się rozsuwać. Mechanizm działał z gracją, której mógłby pozazdrościć najlepszy zegarmistrz. Był to jeden z wielu sekretów tego miejsca, znany tylko nielicznym wtajemniczonym. 
+Wsunął korbę w gniazdo i zaczął ją obracać, przyglądając się, jak masywne drzwi powoli zaczynają się rozsuwać. Był to jeden z wielu sekretów tego miejsca, znany tylko nielicznym wtajemniczonym. Mechanizm pomimo lat, działał z gracją, której mógłby pozazdrościć najlepszy zegarmistrz. 
 
-Komputer w jego głowie wydrukował ostrzeżenie o nagłym wzroście stężenia argonu. Gazu wykorzystywanego do zabezpieczania przed utlenianiem. 
+Komputer w jego głowie wyświetlił ostrzeżenie: poziom stężenia argonu gwałtownie wzrasta. Argon, gaz wykorzystywany do chronienia wrażliwych przedmiotów przed utlenianiem, wypełniał wnętrze pomieszczenia.
+
+- Cholera. Coś przecieka. -  mruknął do siebie, czując jak adrenalina wzrasta w jego żyłach. - Jeżeli upadnę, nie będzie już ratunku. -  Westchnął, zdając sobie sprawę z niebezpieczeństwa.
+
+Wyciągnął korbę i odczekał kilka chwil, aż gęsty gaz zdąży opuścić pomieszczenie, tworząc nad nim przejrzystą ścieżkę. Spojrzał w stronę klatki schodowej, upewniając się, że nikt nie podąża za nim. Potem wkraczać w mrok magazynu, który przypominał pradawne katakumby.
+
+Mijał rzędy skrzyń, pełnych skarbów technologicznych, o których jego drużyna na powierzchni mogła jedynie śnić. Elementy elektroniczne, części, półprodukty, schematy, gotowe maszyny – wszystkie perfekcyjnie zapakowane i zabezpieczone na wieczność. Ten sprzęt mógłby dać nowe życie ich zdegradowanej placówce, nowy początek, lecz nie na tym mu zależało. Po długich minutach wędrówki przez labirynt, dotarł do miejsca docelowego.
+
+Po raz kolejny użył swojej korby, lecz tym razem po otwarciu wrot, musiał ratować się ucieczką. Wdrapał się na jedną z wysokich półek i czekał, aż powietrze znów będzie zdatne do oddychania. Archiwa były wypełnione argonem po brzegi. Normalnie odwiedziny tutaj bez odpowiedniego sprzętu uznałby za  szaleństwem, ale nie miał innego wyboru. 
+
+Rotunda archiwalna była rozległym pomieszczeniem, przypominającym katedrę ze swoimi licznymi stalowymi kolumnami, które zabezpieczały ją przed zniszczeniem, czy to na skutek trzęsienia ziemi czy nuklearnego wybuchu. W przeciwieństwie do reszty kompleksu, spoczywała na gigantycznych sprężynach, które miały tłumić wszelkie wibracje. Tutaj, w zwykłych okolicznościach, znajdowałyby się kryształowe dyski z bezcennymi danymi, gdyby nie zostały ewakuowane pod koniec XXI wieku. Ściany były pokryte licznymi napisami, przede wszystkim instrukcjami, jak korzystać z technologii zapisanej na szklanych płytach, na wypadek, gdyby takowa wiedza została utracona. Azymut przygotował się na absolutny koniec świata, choć ironia chciała, że to właśnie on przyczynił się do jego nadejścia. 
+
+Z rotundy wychodziło kilkanaście korytarzy, tworząc na schemacie wzór przypominający promienie słońca. Na końcu każdego z korytarzy znajdowało się odseparowane od reszty archiwum. Do lat pięćdziesiątych były tam półki wypełnione kasetami z taśmami magnetycznymi; tamta era jednak minęła, i tuż przed końcem lat siedemdziesiątych wymieniono taśmy na szklane płyty, których pojemność, dzięki zaawansowanej kompresji, mogła osiągać nawet jeden petabajt. Ilość danych przechowywanych w tym kompleksie z łatwością przekraczała kilka zettabajtów. Kronos nie mógł być jednak pewien dokładnych liczb — przykładał większą wagę do innych zagadnień.
+
+Następne trzydzieści minut zajęły łowcy otwarcie jednego z magazynów danych i jego wietrzenie. Stał pomiędzy dwoma rzędami szyn, na których wisiały nieaktywne od dawna roboty, niegdyś służące do przenoszenia tafli szkła o gabarytach zeszytów. Co dwadzieścia metrów rozmieszczone były stacje do odczytu i zapisu dysków, tworząc linię technologii zaprojektowanej do pracy bez udziału człowieka. Latarka, którą miał przy sobie, była zbyt słaba, by oświetlić przeciwległą ścianę, a ogromne pomieszczenie wydawało się rozciągać w nieskończoność, jak tunel metra ciągnący się w nieznane.
+
+Kronos wyjął z szafy serwisowej specjalne blaszane pudełko do przenoszenia szklanych dysków i ruszył przed siebie, oglądając etykiety zapisane kodem QR. Jego biochip w głowie sprawnie rozczytywał informacje, przetwarzając dane.
+
+– Biologia, matematyka, fizyka, astronomia, metalurgia – mruczał do siebie, czując jak jego oddech przyśpiesza w odpowiedzi na niższe niż zwykle stężenie tlenu. Mimo że jego ciało było świetnie przystosowane do nieprzyjaznych warunków — odporne na promieniowanie, zmiany ciśnienia, czy niekorzystne związki chemiczne w powietrzu — brak tlenu był jedynym zagrożeniem, przed którym nie mógł się uchronić.
+
+W końcu, pośród rzędu etykiet, znalazł to, czego szukał. Serce zaczęło mu bić szybciej, a dreszcz emocji przebiegł przez jego ciało, gdy jego oczy spoczęły na napisie:
+
+– Człowiek Renesansu – prawie krzyknął z ekscytacją marnując powietrze. 
+
+Szybko zapakował siedem tafli do specjalnego chlebaka, dodał jeszcze trzy, które nosiły enigmatyczną nazwę "Ideał Rycerza". Zadowolony z znaleziska, wsunął puszkę do plecaka, upewniając się, że jest odpowiednio zabezpieczona, i opuścił archiwum tak szybko, jak pozwalała mu na to ostrożność, pamiętając, by zamknąć za sobą wszystkie drzwi. Korby nie odłożył na swoje miejsce, gdyby miała mu się jeszcze przydać. 
+
+Jego jaźń, wraz ze wszystkimi wspomnieniami i doświadczeniami, mogła zostać zapisana na jednej szklanej płycie. Zestaw, znany pod kryptonimem "Ideał Rycerza", był czymś do czego dążyli naukowcy, którzy przez przypadek przywrócili Kronosa do życia. Była to uniwersalna matryca do produkcji wojowników, którzy poradzą sobie w każdej sytuacji, niezależnie od okoliczności. Najważniejszą jej cechą było to, że w zależności od wybranych parametrów podczas wgrywania świadomości do ciała obiektu 258, można było uzyskać różnorodne efekty.
+
+W świecie, gdzie jednostki złożone z podobnie myślących ludzi nie były najbardziej optymalnym rozwiązaniem, różnorodność grała kluczową rolę. Każdy wojownik mógł być unikalny, dostosowany do specyficznych zadań, które miał wykonać. 
+
+Siedem pozostałych płyt było najciekawszych i zarazem najpotrzebniejszych w obecnej sytuacji. Dzięki nim można było stworzyć jednostkę wszechstronnie uzdolnioną, prawdziwego Leonardo Da Vinci przyszłości. Kronos, choć uważał się za bardzo inteligentnego człowieka, zdawał sobie sprawę z własnych ograniczeń. Brakowało mu umiejętności takich jak budowanie maszyn, które były kluczowe do odtworzenia całej infrastruktury kojarzonej z nowoczesnym społeczeństwem. Samo stworzenie od zera ołówka byłoby dla niego problemem, nie wspominając o bardziej skomplikowanych wynalazkach.
+
+Podobnie jak w przypadku matrycy wojownika, geniusza można było odpowiednio sparametryzować, aby był lepszy w określonych dziedzinach lub posiadał wiedzę na poziomie profesora uniwersyteckiego. Wyobraźnia naukowców zrobionych z tej matrycy, nie znała granic, a możliwości, jakie otwierały się przed nimi, były niemalże nieskończone. Tego właśnie potrzebował. 
+
+Kronos wdrapał się z powrotem na piętro, z którego przyszedł, czując, jak jego serce bije szybciej z każdym krokiem. Zamknął śluzę , a potem przesunął ozdobne szkielety na miejsce, starając się, aby nie wydały zbyt głośnego dźwięku.
+
+— Niech dalej pełnią swoją rolę — mruknął do siebie, patrząc na misternie zdobione kości, które miały odstraszać niepożądanych gości. — Miejmy nadzieję, że wrócę tutaj niedługo wraz z lepszym zespołem.
+
+Zgasił latarkę i ruszył po ciemku gdyż dobrze znał każdy zakamarek tego labiryntu. Jego kroki były pewne i ciche, jakby znał każdy zakamarek tego labiryntu. Myśli krążyły wokół tego, jak wytłumaczy się reszcie oddziału ze swojej nieobecności.
+
+— Chyba po prostu powiem, że się zgubiłem — rozważał w myślach, próbując znaleźć najbardziej wiarygodną wymówkę. — Może uszkodzić latarkę? Byłoby to bardziej przekonujące... Dobrze, że puszka ze szklanymi płytami nie jest duża. Nie będzie problemu jej ukryć.
+
+Znieruchomiał, gdy do jego uszu doszedł rytmiczny stukot. Ściągnął karabin z ramienia i przywarł do zimnej, wilgotnej ściany zaraz przy rozwidleniu korytarzy. Nasłuchiwał, starając się wyłapać każdy dźwięk. Pazurzaste stopy jakiegoś mutanta uderzały rytmicznie o posadzkę, a wątłe światło świecy lub pochodni zaczynało powoli rozjaśniać korytarz. Adrenalina zaczęła sączyć się do jego żył, a komputer w głowie analizował dźwięk, próbując odgadnąć, z czym ma do czynienia. Cokolwiek to było, nie było przyjazne.
+
+— To będzie jakiś humanoid. Maksymalna waga siedemdziesiąt kilo — mówił do siebie w myślach, próbując uspokoić narastające napięcie. Ale co się stało z resztą oddziału Inferno? Gdyby doszło do jakiejś walki, na pewno słyszałbym strzały. Nie siedziałem w samym archiwum aż tak długo, aby ominęła mnie zabawa.
+
+Cień demonicznej łapy trzymającej krótki topór pojawił się na ścianie, a Kronos wstrzymał oddech. Rogata postać minęła go, nie orientując się o jego obecności. W ułamku sekundy doskoczył do mutanta, złapał go za szyję i szarpnął. Powietrze przeszył trzask kręgosłupa, a po chwili na ziemię upadła pochodnia i kamienny topór.
+
+Ktoś krzyknął z głębi korytarza, ale Kronos nie zrozumiał obcej mowy. Chwycił leżący tomahawk i rzucił nim w ciemność, celując w dźwięk. Po chwili rozległ się głuchy dźwięk upadku czegoś ciężkiego.
+
+— To tyle z elementu zaskoczenia — mruknął, gasząc pochodnię podeszwą buta, a mrok ponownie ogarnął korytarz, jakby nigdy nie został przerwany.
+
+Przejście do podziemnego lotniska ziało szeroko otwarte, jakby zapraszając do środka. Po Siódemce i Piętnastce nie było śladu, co mogło oznaczać, że wciąż żyli. Kronos oparł kolbę karabinu o ramię, stawiając ostrożnie kroki, by nie wydać niepotrzebnego dźwięku. Obezpieczył broń, wychylił się i rozejrzał.
+
+Drabina, po której zeszli, była odcięta. Kawałek sznura zwisał z otworu w suficie, reszta zapewne ukryta pod powierzchnią mętnej wody.
+
+- Uciekli - pomyślał gniewnie.
+
+Ze stropu zwisało stworzenie wielkości konia, przypominające łysego goryla z głową mureny. Trzymało się potężnych dźwigarów, a na jego grzbiecie siedział mutant, podobny do tych, które Kronos spotkał wcześniej w ciemnym korytarzu. Ten jednak miał znacznie okazalsze rogi i należał do innego typu. Krzyczał na grupę stojącą na dole w wodzie, obok kolejnych dwóch mureno-goryli. Wyciągali coś z juk swoich wierzchowców, prawdopodobnie szykując się do przeszukania placówki i dlatego wysłali dwóch zwiadowców przodem.
+
+Zanim minęła chwila, Kronos został zauważony. Ich wódz widział w spektrum światła podczerwonego, więc dostrzegał nawet w pełnych ciemnościach. Skierował na niego swój długi na dwa cale szpon i wrzasnął do ataku.
+
+Czas zwolnił. Łowca przeszedł w tryb bojowy. Najpierw pozbył się wszystkowidzącego mutanta. Murenia czaszka została przeszyta jednym celnym strzałem. Nim ogromne cielsko odrażającej bestii zwaliło się do wody, padł kolejny strzał. Łucznik, który już nakładał strzałę na cięciwę, padł jak mucha. Goryle zerwały się do walki. Jeden szybko zniknął za platformą, a drugi wskoczył na ścianę, trzymając się jej, wydając przeraźliwe dźwięki. Obiekt 258 wysunął się ze swojej pozycji, aby znaleźć odpowiedni kąt. Bestia skoczyła, rozwarła podwójne szczęki, szczerząc żółte kły. Łowca pociągnął za spust. Potwór uderzył bezwładnie o barierki, wyginając je. Trzecie monstrum chwyciło się platformy i wdrapało się na nią, nie tracąc impetu. Kronos nie zdążył się obrócić. Zrobił unik. Wielka łapa trzasnęła jego karabin, pazury porysowały drewniane łoże i zerwały zawieszenie. Czerwone, przekrwione ślepia były coraz większe. Szczęki otwarły się. Łowca puścił karabin. Sięgnął po nóż. Chwycił murenią głowę za nos, wbijając palce w nozdrza. Szarpnął, aby ustabilizować mutanta. Zadał cios. Ostrze przebiło źrenicę i cienką czaszkę. Rękojeść z jeleniego rogu pękła. Goryl, pchany siłą bezwładności, znokautował Kronosa i uderzył nim o ścianę.
+
+Zadzwoniło mu w uszach. Półprzytomny chwycił leżącą na ziemi broń i zaczął biec. Na początku w przypadkowym kierunku, jednak po chwili świadomość wróciła wraz z bólem rozrywającym całe ciało. Zapalił latarkę i zaczął kierować się w stronę najbliższego wyjścia ewakuacyjnego.
+
+Za plecami słyszał zbliżającą się pogoń. Wspiął się po schodach. Wbiegł do zdezelowanego czasem i wilgocią biura. Kopniakiem wzmocnionym bólem i adrenaliną wyważył drzwi do pokoju jakiegoś wyżej postawionego członka Azymutu. Zerwał odpadającą od betonowej ściany tapetę, trzymającą się na cienkiej warstwie żywicy, odsłaniając wąski właz.
+
+Chwycił za pokrętło, z trudem otwierając zabrudzony mechanizm. Wszedł do środka i zatrzasnął za sobą przejście. Kilkukrotnie uderzył w wajchę zamka, próbując odpalić specjalne ładunki wybuchowe, które miały zatrzasnąć właz na amen. Czas wygrał i nic nie wystrzeliło. Wyjął z plecaka korbę, której użył do otwarcia archiwum, i wetknął ją tak, aby osiągnąć podobny do zamierzonego efekt. Był bezpieczny, przynajmniej na razie.
