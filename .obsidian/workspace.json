@@ -20,20 +20,6 @@
               "icon": "lucide-file",
               "title": "Kronos"
             }
-          },
-          {
-            "id": "1bf0a4b3327280d6",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "System.md",
-                "mode": "source",
-                "source": true
-              },
-              "icon": "lucide-file",
-              "title": "System"
-            }
           }
         ]
       }
@@ -180,6 +166,7 @@
     "System.md",
     "Kronos.md",
     "Targ_Intal.md",
+    "Untitled",
     "Kierunek_Intal.md",
     "Operacja_Intal.md",
     "README.md",

@@ -340,3 +340,45 @@ Zadzwoniło mu w uszach. Półprzytomny chwycił leżącą na ziemi broń i zacz
 Za plecami słyszał zbliżającą się pogoń. Wspiął się po schodach. Wbiegł do zdezelowanego czasem i wilgocią biura. Kopniakiem wzmocnionym bólem i adrenaliną wyważył drzwi do pokoju jakiegoś wyżej postawionego członka Azymutu. Zerwał odpadającą od betonowej ściany tapetę, trzymającą się na cienkiej warstwie żywicy, odsłaniając wąski właz.
 
 Chwycił za pokrętło, z trudem otwierając zabrudzony mechanizm. Wszedł do środka i zatrzasnął za sobą przejście. Kilkukrotnie uderzył w wajchę zamka, próbując odpalić specjalne ładunki wybuchowe, które miały zatrzasnąć właz na amen. Czas wygrał i nic nie wystrzeliło. Wyjął z plecaka korbę, której użył do otwarcia archiwum, i wetknął ją tak, aby osiągnąć podobny do zamierzonego efekt. Był bezpieczny, przynajmniej na razie.
+
+Potrzebował następnych kilku godzin, aby wydostać się na powierzchnie. Przeciśnięcie się przez rurę ewakuacyjną nie było specjalnie problematyczne, ale sama stalowa kopuła z ostatnim włazem była zakopana. Ku jego szczęściu, wszystkie przejścia otwierały się do środka, więc gruz i korzenie nie były przeszkodą nie do przebycia. 
+
+Z radością przywitał zapach świeżego powietrza. Otrzepał się z ziemi, dobył broń, przyklęknął i rozejrzał się chłodno kalkulując sytuację. Wokół niego nie było nic innego tylko drzewa, krzaki i morze listowia. Zaciągnął się głęboko próbując wyczuć jakieś znane mu feromony należące do mutantów Azymutu. 
+- No dobrze. Mam to po co tu przybyłem. Mam broń. Mogę wrócić pieszo. Nie lecieliśmy wcale tak długo. To tylko dwieście, może sto pięćdziesiąt kilometrów. - Mówił do siebie. 
+
+Aktywował czip w głowie. 
+- Co jest? - Zdziwił się.
+
+Przed jego oczami pojawił się odczyt z kompasu, ale coś bardzo mu nie pasowało. Według tego co właśnie widział słońce powoli zachodziło na wschodzie. 
+
+- Fascynujące, w między czasie musiało dość do przebiegunowania. Ciekawe kiedy to się stało? 
+
+Wstał i pokierował się w stronę geograficznej północy a aktualnego południa magnetycznego. Ptaki których nigdy w życiu nie widział śpiewały nad jego głową. Jaskrawo czerwona kulka piór skakała z gałęzi na gałąź krzycząc zawzięcie. Przyklękł na chwilę, ponownie się rozejrzał i ponownie ruszył korygując tracę. Od strony wyrwy w ziemi dochodziły jakieś ryki. Nie chciał ponownie spotkać kolejnego murenogoryla albo innego równie groźnego mutanta. Powiało mocniej zwiastując zmianę pogody. Konary zatrzeszczały. 
+
+- Burza? To nawet lepiej dla mnie. - Stwierdził zerkając jak dębowa korona nad nim zatańczyła. 
+
+Uśmiechnął się i zamarł. Trzydzieści metrów od niego stało coś przypominającego wilkołaka. Wiatr wiał mu w plecy, więc nie był wstanie go wyczuć. Mutant odszedł w las za potrzebą i akurat wpadł na łowcę. Wpatrywali się w siebie kilka sekund. Czas dla Kronosa powoli zaczął zwalniać a adrenalina zaczęła sączyć się do żył po raz kolejny. Wiedział, że jeśli wystrzeli to zdradzi swoją pozycję. Nie miał już noża. Nie mógł liczyć na szczęśliwy rzut i w miarę ciche wyeliminowanie napastnika. 
+
+Humanoidalny wilk sięgnął do paca po coś co przypominało myśliwski róg. Kronos wycelował w bestię. Już miał pociągnąć za spust. Gdy jego cel rozpalił się czerwonym blaskiem i znaczna jego część wyparowała. Trzask energii, mimo wszystko cichszy niż wystrzał jego karabinu,  przeszył powietrze. W mgnieniu oka obrócił stronę z skąd wyleciał fuzyjny bełt. Mierzył do kobiety trzymającej coś co kiedyś było karabinem energetycznym przyczepionym do długiego drewnianego kija za pomocą metalowych obręczy. Z emitera wylatywały iskry sygnalizujące bardzo kiepski stan kondensatorów. Broń mogła buchnąć przy następnym wystrzale. Spod szpiczastego kapelusza i ogromnym rondem wystawała jasna, brudna od błota twarz. 
+
+- Iris, to ty? - Opuścił broń idąc w kierunku swojej wybawczyni. 
+- Nie zbliżaj się. - Powiedziała do niego zwracając kij w jego stronę. Lekko wcisnęła wajchę, która służyła za prowizoryczny spust. Kondensatory zaczęły się ładować. 
+
+Uniósł lewą rękę w uspokajającym geście. Cały czas był gotowy do walki i nadal miał spore szanse takową zwyciężyć. 
+
+- Swój. - Prawie krzyknęła, mimo wszystko bojąc się, że ekipa z okolic wyrwy ich usłyszy. 
+
+Zatrzymał się. Emiter rozżarzył się, a powietrze nad nim zaczęło falować od ciepła. Zabezpieczenia przed przeładowaniem albo były spalone, albo co bardziej prawdopodobne, wszystko było spięte na krótko. Według instrukcji w tym momencie powinno się jak najszybciej odpiąć źródło zasilania.  
+
+- Spokojnie. Iris. - Mówił powoli dając sobie jeszcze kilka sekund. -  To ja Kronos. Znasz mnie. Nie wiem ile czasu minęło, ale to ja. Opu... 
+
+Emiter zajął się ogniem. Kobieta odrzuciła kij, który eksplodował gdy tylko dotknął ziemi podpalając wszystko wokół. Musiał tracić w coś twardego, ponieważ to nie było naturalne zachowanie tego typu broni. 
+
+Łowca przeklnął po grecku. Mieli może kilka maksymalnie kilkanaście minut zanim zrobi się tutaj gorąco. Wszystko zależało od tego jak ostrożni są przeciwnicy, z którymi przyszło mu się mierzyć. Mimo wszystko nie miał zamiaru czekać aż tak długo. Zaczął biec taranując pomniejszą roślinność. Iris stała w miejscu patrząc to na płonący kostur, to na mężczyznę. Była w szoku. Chwycił ją za rękę i pociągnął za sobą. Próbowała się wyrwać, ale bez skutecznie. Była obiektem 150 on 258. Ważył na około dwa razy więcej i był kilku krotnie silniejszy ze względu na wzmacniane ścięgna, których jej brakowało. 
+
+Obiekty 150 słynęły ze swoich zdolności umysłowych. Potrafiły dokonywać wielu skomplikowanych kalkulacji matematycznych jednocześnie czytać i słuchając tekstów w kilku różnych językach. Pod względem wielozadaniowości, często wygrywały różnymi modelami sztucznej inteligencji opartych o krzemowe czipy. Dodatkowo w fazie produkcji montowano im bioanteny, których mogli używać do czegoś w rodzaju telepatii opartej o fale elektro magnetyczne. Problem z tymi tworami Azymutu był tylko jeden. Część z nich miała tendencje do psychozy, co przyczyniło się do szybkiego końca programu. 
+
+Psychiczny pisk rozbrzmiał w eterze. Kronos przez ułamek sekundy poczuł jakby ktoś wbił mu gwóźdź w głowę. Normalnie każdego innego człowieka, mutanta lub obiekt, taki atak powaliłby na ziemię. Jednak on miał już z czymś takim do czynienia i wykorzystał swój czip w głowie, aby odciąć wszystkie bodźce. Mimo wszyto łowców ciężko było zaskoczyć. 
+
+Kobieta dość szybko opadła z sił. Włożył sobie ją na plecy nim zdążyła upaść i kontynuował ucieczkę. Po może dwóch kilometrach znalazł jakiś płytki strumień. Szedł w górę niego do puki nie zapadł mrok. Dopiero w tedy zdjął z siebie omdlałą Iris i położył ją pod jedną z wierzb, której gałązki dotykały tafli wody. 
+
