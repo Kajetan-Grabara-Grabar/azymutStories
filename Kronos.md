@@ -341,44 +341,138 @@ Za plecami słyszał zbliżającą się pogoń. Wspiął się po schodach. Wbieg
 
 Chwycił za pokrętło, z trudem otwierając zabrudzony mechanizm. Wszedł do środka i zatrzasnął za sobą przejście. Kilkukrotnie uderzył w wajchę zamka, próbując odpalić specjalne ładunki wybuchowe, które miały zatrzasnąć właz na amen. Czas wygrał i nic nie wystrzeliło. Wyjął z plecaka korbę, której użył do otwarcia archiwum, i wetknął ją tak, aby osiągnąć podobny do zamierzonego efekt. Był bezpieczny, przynajmniej na razie.
 
-Potrzebował następnych kilku godzin, aby wydostać się na powierzchnie. Przeciśnięcie się przez rurę ewakuacyjną nie było specjalnie problematyczne, ale sama stalowa kopuła z ostatnim włazem była zakopana. Ku jego szczęściu, wszystkie przejścia otwierały się do środka, więc gruz i korzenie nie były przeszkodą nie do przebycia. 
+Potrzebował jeszcze kilku godzin, aby wydostać się na powierzchnię. Przeciśnięcie się przez wąską rurę ewakuacyjną nie było specjalnie problematyczne, lecz stalowa kopuła z ostatnim włazem była zakopana pod ciężkim gruzem i splątanymi korzeniami. Na jego szczęście, wszystkie przejścia otwierały się do środka, co pozwoliło mu z łatwością pokonać przeszkodę.
 
-Z radością przywitał zapach świeżego powietrza. Otrzepał się z ziemi, dobył broń, przyklęknął i rozejrzał się chłodno kalkulując sytuację. Wokół niego nie było nic innego tylko drzewa, krzaki i morze listowia. Zaciągnął się głęboko próbując wyczuć jakieś znane mu feromony należące do mutantów Azymutu. 
-- No dobrze. Mam to po co tu przybyłem. Mam broń. Mogę wrócić pieszo. Nie lecieliśmy wcale tak długo. To tylko dwieście, może sto pięćdziesiąt kilometrów. - Mówił do siebie. 
+Gdy wreszcie poczuł na twarzy powiew świeżego powietrza, z radością przywitał ten znajomy zapach wolności. Otrzepał się z ziemi, dobył broń, przyklęknął i rozejrzał się, chłodno kalkulując sytuację. Wokół niego rozciągał się gęsty las, wypełniony morzem liści i krzaczastą zielenią. Zaciągnął się głęboko, próbując wyczuć jakiekolwiek znane mu feromony mutantów Azymutu, ale powietrze było czyste, przynajmniej na razie.
 
-Aktywował czip w głowie. 
-- Co jest? - Zdziwił się.
+— No dobrze. Mam to, po co tu przybyłem. Mam broń. Mogę wrócić pieszo. Nie lecieliśmy wcale tak długo. To tylko dwieście, może sto pięćdziesiąt kilometrów — mruknął do siebie, szukając otuchy w swoich słowach.
 
-Przed jego oczami pojawił się odczyt z kompasu, ale coś bardzo mu nie pasowało. Według tego co właśnie widział słońce powoli zachodziło na wschodzie. 
+Aktywował czip w głowie, oczekując zwyczajowego odczytu danych. Jednak coś nie pasowało. Przed jego oczami pojawił się kompas, ale wskazania były niepokojąco błędne. Według czipu, słońce powoli zachodziło na wschodzie.
 
-- Fascynujące, w między czasie musiało dość do przebiegunowania. Ciekawe kiedy to się stało? 
+— Fascynujące. W międzyczasie musiało dojść do przebiegunowania. Ciekawe kiedy to się stało? — Zastanawiał się, próbując dostosować się do nowej rzeczywistości.
 
-Wstał i pokierował się w stronę geograficznej północy a aktualnego południa magnetycznego. Ptaki których nigdy w życiu nie widział śpiewały nad jego głową. Jaskrawo czerwona kulka piór skakała z gałęzi na gałąź krzycząc zawzięcie. Przyklękł na chwilę, ponownie się rozejrzał i ponownie ruszył korygując tracę. Od strony wyrwy w ziemi dochodziły jakieś ryki. Nie chciał ponownie spotkać kolejnego murenogoryla albo innego równie groźnego mutanta. Powiało mocniej zwiastując zmianę pogody. Konary zatrzeszczały. 
+Wstał i skierował się w stronę geograficznej północy, która teraz była aktualnym południem magnetycznym. Ptaki, których nigdy dotąd nie widział, śpiewały nad jego głową, a jaskrawo czerwona kulka piór skakała z gałęzi na gałąź, krzycząc zawzięcie. Przyklęknął na chwilę, ponownie się rozejrzał i ruszył dalej, korygując trasę. Od strony wyrwy w ziemi dobiegały jakieś ryki. Nie chciał ponownie spotkać kolejnego murenogoryla ani innego równie groźnego mutanta.
 
-- Burza? To nawet lepiej dla mnie. - Stwierdził zerkając jak dębowa korona nad nim zatańczyła. 
+Nagle powietrze zawiało mocniej, zwiastując zmianę pogody. Konary nad jego głową zatrzeszczały w odpowiedzi na nadchodzącą burzę, której dźwięk przypominał odległy grzmot.
 
-Uśmiechnął się i zamarł. Trzydzieści metrów od niego stało coś przypominającego wilkołaka. Wiatr wiał mu w plecy, więc nie był wstanie go wyczuć. Mutant odszedł w las za potrzebą i akurat wpadł na łowcę. Wpatrywali się w siebie kilka sekund. Czas dla Kronosa powoli zaczął zwalniać a adrenalina zaczęła sączyć się do żył po raz kolejny. Wiedział, że jeśli wystrzeli to zdradzi swoją pozycję. Nie miał już noża. Nie mógł liczyć na szczęśliwy rzut i w miarę ciche wyeliminowanie napastnika. 
+— Burza? To nawet lepiej dla mnie — stwierdził, zerkając, jak dębowa korona nad nim zatańczyła w wietrze.
 
-Humanoidalny wilk sięgnął do paca po coś co przypominało myśliwski róg. Kronos wycelował w bestię. Już miał pociągnąć za spust. Gdy jego cel rozpalił się czerwonym blaskiem i znaczna jego część wyparowała. Trzask energii, mimo wszystko cichszy niż wystrzał jego karabinu,  przeszył powietrze. W mgnieniu oka obrócił stronę z skąd wyleciał fuzyjny bełt. Mierzył do kobiety trzymającej coś co kiedyś było karabinem energetycznym przyczepionym do długiego drewnianego kija za pomocą metalowych obręczy. Z emitera wylatywały iskry sygnalizujące bardzo kiepski stan kondensatorów. Broń mogła buchnąć przy następnym wystrzale. Spod szpiczastego kapelusza i ogromnym rondem wystawała jasna, brudna od błota twarz. 
+Uśmiechnął się, ale jego ciało momentalnie zamarło. Trzydzieści metrów przed nim stało coś przypominającego wilkołaka. Wiatr wiał mu w plecy, więc stworzenie nie było w stanie go wyczuć. Mutant, zapewne odchodząc za potrzebą, przypadkowo natknął się na łowcę. Ich spojrzenia skrzyżowały się na kilka długich sekund. Czas dla Kronosa powoli zaczął zwalniać, gdy adrenalina sączyła się do jego żył. Wiedział, że jeśli wystrzeli, zdradzi swoją pozycję. Nie miał już noża, a więc nie mógł liczyć na szczęśliwy rzut i ciche wyeliminowanie napastnika.
+Każda sekunda niosła ze sobą ciężar decyzji, a otaczający go las wydawał się wstrzymać oddech, oczekując na kolejne posunięcie Kronosa.
 
-- Iris, to ty? - Opuścił broń idąc w kierunku swojej wybawczyni. 
-- Nie zbliżaj się. - Powiedziała do niego zwracając kij w jego stronę. Lekko wcisnęła wajchę, która służyła za prowizoryczny spust. Kondensatory zaczęły się ładować. 
+Humanoidalny wilk sięgnął do pasa po coś, co przypominało myśliwski róg. Kronos wycelował w bestię. Już miał pociągnąć za spust, gdy jego cel rozpalił się czerwonym blaskiem i znaczna jego część wyparowała. Trzask energii, choć cichszy niż wystrzał jego karabinu, przeszył powietrze. W mgnieniu oka obrócił się w stronę, z której wyleciał fuzyjny bełt. Mierzył do kobiety trzymającej coś, co kiedyś było karabinem energetycznym, przyczepionym do długiego drewnianego kija za pomocą metalowych obręczy. Z emitera wylatywały iskry, sygnalizujące bardzo kiepski stan kondensatorów. Broń mogła eksplodować przy następnym wystrzale. Spod szpiczastego kapelusza z ogromnym rondem wystawała jasna, brudna od błota twarz.
 
-Uniósł lewą rękę w uspokajającym geście. Cały czas był gotowy do walki i nadal miał spore szanse takową zwyciężyć. 
+– Iris, to ty? – Opuścił broń, idąc w kierunku swojej wybawczyni.
 
-- Swój. - Prawie krzyknęła, mimo wszystko bojąc się, że ekipa z okolic wyrwy ich usłyszy. 
+– Nie zbliżaj się – powiedziała do niego, zwracając kij w jego stronę. Lekko wcisnęła wajchę, która służyła za prowizoryczny spust. Kondensatory zaczęły się ładować.
 
-Zatrzymał się. Emiter rozżarzył się, a powietrze nad nim zaczęło falować od ciepła. Zabezpieczenia przed przeładowaniem albo były spalone, albo co bardziej prawdopodobne, wszystko było spięte na krótko. Według instrukcji w tym momencie powinno się jak najszybciej odpiąć źródło zasilania.  
+Uniósł lewą rękę w uspokajającym geście. Cały czas był gotowy do walki i nadal miał spore szanse na zwycięstwo.
 
-- Spokojnie. Iris. - Mówił powoli dając sobie jeszcze kilka sekund. -  To ja Kronos. Znasz mnie. Nie wiem ile czasu minęło, ale to ja. Opu... 
+– Stój – prawie krzyknęła, jednocześnie obawiając się, że ekipa z okolic wyrwy ich usłyszy.
 
-Emiter zajął się ogniem. Kobieta odrzuciła kij, który eksplodował gdy tylko dotknął ziemi podpalając wszystko wokół. Musiał tracić w coś twardego, ponieważ to nie było naturalne zachowanie tego typu broni. 
+Zatrzymał się. Emiter rozżarzył się, a powietrze nad nim zaczęło falować od ciepła. Zabezpieczenia przed przeładowaniem albo były spalone, albo co bardziej prawdopodobne, wszystko było spięte na krótko. Według instrukcji w tym momencie powinno się jak najszybciej odłączyć źródło zasilania.
 
-Łowca przeklnął po grecku. Mieli może kilka maksymalnie kilkanaście minut zanim zrobi się tutaj gorąco. Wszystko zależało od tego jak ostrożni są przeciwnicy, z którymi przyszło mu się mierzyć. Mimo wszystko nie miał zamiaru czekać aż tak długo. Zaczął biec taranując pomniejszą roślinność. Iris stała w miejscu patrząc to na płonący kostur, to na mężczyznę. Była w szoku. Chwycił ją za rękę i pociągnął za sobą. Próbowała się wyrwać, ale bez skutecznie. Była obiektem 150 on 258. Ważył na około dwa razy więcej i był kilku krotnie silniejszy ze względu na wzmacniane ścięgna, których jej brakowało. 
+– Spokojnie, Iris – mówił powoli, zyskując jeszcze kilka sekund. – To ja, Kronos. Znasz mnie. Nie wiem, ile czasu minęło, ale to ja. Opuść...
 
-Obiekty 150 słynęły ze swoich zdolności umysłowych. Potrafiły dokonywać wielu skomplikowanych kalkulacji matematycznych jednocześnie czytać i słuchając tekstów w kilku różnych językach. Pod względem wielozadaniowości, często wygrywały różnymi modelami sztucznej inteligencji opartych o krzemowe czipy. Dodatkowo w fazie produkcji montowano im bioanteny, których mogli używać do czegoś w rodzaju telepatii opartej o fale elektro magnetyczne. Problem z tymi tworami Azymutu był tylko jeden. Część z nich miała tendencje do psychozy, co przyczyniło się do szybkiego końca programu. 
+Emiter zajął się ogniem. Kobieta odrzuciła kij, który eksplodował, gdy tylko dotknął ziemi, podpalając wszystko wokół. Musiał trafić w coś twardego, ponieważ to nie było naturalne zachowanie tego typu broni.
 
-Psychiczny pisk rozbrzmiał w eterze. Kronos przez ułamek sekundy poczuł jakby ktoś wbił mu gwóźdź w głowę. Normalnie każdego innego człowieka, mutanta lub obiekt, taki atak powaliłby na ziemię. Jednak on miał już z czymś takim do czynienia i wykorzystał swój czip w głowie, aby odciąć wszystkie bodźce. Mimo wszyto łowców ciężko było zaskoczyć. 
+Łowca przeklął po grecku. Mieli może kilka, maksymalnie kilkanaście minut, zanim zrobi się tutaj gorąco. Wszystko zależało od tego, jak ostrożni są przeciwnicy, z którymi przyszło mu się zmierzyć. Mimo wszystko nie miał zamiaru czekać tak długo. Zaczął biec, taranując pomniejszą roślinność. Iris stała w miejscu, patrząc to na płonący kostur, to na mężczyznę. Była w szoku. Chwycił ją za rękę i pociągnął za sobą. Próbowała się wyrwać, ale bezskutecznie. Była obiektem 150, on 258. Ważył około dwa razy więcej i był kilkukrotnie silniejszy, dzięki wzmocnionym ścięgnom, których jej brakowało.
 
-Kobieta dość szybko opadła z sił. Włożył sobie ją na plecy nim zdążyła upaść i kontynuował ucieczkę. Po może dwóch kilometrach znalazł jakiś płytki strumień. Szedł w górę niego do puki nie zapadł mrok. Dopiero w tedy zdjął z siebie omdlałą Iris i położył ją pod jedną z wierzb, której gałązki dotykały tafli wody. 
+Obiekty 150 słynęły ze swoich zdolności umysłowych. Potrafiły dokonywać wielu skomplikowanych kalkulacji matematycznych, jednocześnie czytać i słuchać tekstów w kilku różnych językach. Pod względem wielozadaniowości często wygrywały z różnymi modelami sztucznej inteligencji opartych o krzemowe czipy. Dodatkowo w fazie produkcji montowano im bioanteny, których mogły używać do czegoś w rodzaju telepatii opartej o fale elektromagnetyczne. Problem z tymi tworami Azymutu był tylko jeden – część z nich miała tendencje do psychozy, co przyczyniło się do szybkiego końca programu.
 
+Psychiczny pisk rozbrzmiał w eterze. Kronos przez ułamek sekundy poczuł, jakby ktoś wbił mu gwóźdź w głowę. Normalnie każdego innego człowieka, mutanta lub obiekt, taki atak powaliłby na ziemię. Jednak on miał już z czymś takim do czynienia i wykorzystał swój czip w głowie, aby odciąć wszystkie bodźce. Mimo wszystko łowców ciężko było zaskoczyć.
+
+Kobieta dość szybko opadła z sił. Włożył ją sobie na plecy, nim zdążyła upaść, i kontynuował ucieczkę. Po około dwóch kilometrach znalazł jakiś płytki strumień. Szedł w górę niego, póki nie zapadł mrok. Dopiero wtedy zdjął z siebie omdlałą Iris i położył ją pod jedną z wierzb, której gałązki dotykały tafli wody.
+
+Usiadł na mokrej ziemi. Las wokół nich zaczął ożywać nocnymi dźwiękami. Pokrzykiwania nocnych ptaków i szelest drobnych stworzeń w zaroślach przywodziły na myśl spokojne chwile z przeszłości, gdy w czasie wolnym razem z Percy, Afrą i Promykiem robili wypady w nieznane, by odreagować koszmary ich codziennych zadań i obowiązków. 
+
+Wyjął prowiant mokrego plecaka i podzielił z Iris, która zaczynała dochodzić do siebie. Była słaba, niedożywiona. Życie w świecie po końcu ludzkości musiało być dla niej nadzwyczaj trudne. 
+
+- Myślałam, że jesteś duchem. Wspomnieniem, które śni mi się na jawie. - Mówiła jedząc kawałek suchara. 
+- Miło mi cię zaskoczyć. - Uśmiechnął się wgryzając się w pasek suszonej wołowiny. 
+- Czekałyśmy na ciebie. Wiedziałem, że kiedyś wrócisz, ale moje siostry zwątpiły i opuściły schronienie. - Mówiła z lekkim żalem i wrzutem w głosie. - Co się stało? 
+
+Spojrzał w dal przywołując wspomnienia. 
+
+- Poległem w walce. To była bardzo krwawa klęska dla wszystkich moich towarzyszy. Nikt nie przeżył. 
+- Uznam to za dobre wytłuczenie. - Ściągnęła to kapelusz i położyła go pod krzakiem dzikich jeżyn. 
+- Przepraszam, mam ogromną dziurę w pamięci. Straciłem wspomnienia z ostatnich dwóch miesięcy pomiędzy ostatnią kopią zapasową, a ostatnimi dwudziestoma czterema godzinami mojego życia. Nie wiedziałem nawet, że spotkaliśmy się w tym okresie. 
+
+Biokomputer poinformował go nieudanej próbie włamania do systemu. Iris nie wierzyła mu i chciała dobrać się do jego świadomości, aby ustalić prawdę. 
+
+- To nie ma sensu. - Powiedział spokojnie. 
+- A więc jednak to ty. - Zaśmiała się. - Jak wróciłeś do żywych? Co się z tobą działo? 
+- Wpierw moje pytanie. Jak mnie znalazłaś? Jak się w ogólne tam zalazłaś? 
+- Trywialne pytanie. 
+- Śmigłowiec... Zdecydowanie mało taktowna zagrywka. - Westchnął. - Zdecydowanie mogłem opowiedzieć sobie na to pytanie zupełnie sam. No dobra, niech ci będzie. Dwa dni temu załadowali moją świadomość do nowego ciała. 
+- Ha... Podejrzewała, że przeleżałeś zahibernowany w jakimś słoju osiemset lat i system podtrzymywania życia wreszcie nawalił. 
+
+Kronos prawie się zachłysnął. 
+- Ile? - Zaniemówił. 
+- Plus minut. Straciłam rachubę czasu. 
+
+Chwycił się za głowę. Potrzebował chwili, aby się opanować. Iris po raz kolejny próbowała wejść do jego świadomości, po raz kolejny nieskutecznie. 
+
+- No dobrze. Co się stało przez te osiem.... - Liczba nie mogła mu przejść przez gardło. - Osiemset lat? 
+- Ludzkość po trzeciej fali mutantów wypuszczonych przez Azymut została cofnięta do epoki kamienia łupanego. Rok później jakiś wirus, zapewnie również pochodzący od tej pierdolonej korporacji, wybił cały mój personel pozostawiając przy życiu jedynie obiekty i ludzi. Czyli mniej niż pięć procent populacji placówki, którą nazywałam domem... Próbowałam kontynuować moje badania, ale czas zniszczył wszystko nad czym pracowałam. Zostałam wędrowną medyczką, czarownicą, szamanką. Jak zwał tak zwał. Tak minęła mi dosłowna wietrzność. 
+- Zapewne miałaś setki przygód. 
+- Tak. Byłam światkiem jak moje siostry dziczeją, jak pochłania je szaleństwo. 
+- Ile obiektów 150 przetrwało do teraz? 
+- Garstka. Większość, życie teraz w głębokich borach i poluje na przejezdnych. 
+- A Mira i Selene? 
+- Po czasie, gdy już było pewne, że coś wam się stało wybrały się podróż w celu znalezienia jakieś cywilizacji. Zginęły z rąk kogoś kogo nazywali Czarnym Rycerzem. - Łzy pociekły jej po policzkach. - Chociaż po czasie stwierdzam, że może to i lepiej. Nie musiały oglądać tyle okropnych rzeczy co ja. - Oparła głowę o korę. - Dlaczego twoi o tobie zapomnieli? - Spytała po chwili. 
+- Zapuściłem się dość głęboko, aby dostać się do archiwum. - Wyjął z plecaka puszkę ze szklanymi dyskami. - To pozwoli mi zacząć od nowa. 
+- Powodzenia. Wszystkie relikty starego świata zjadła rdza. 
+- Widziałaś śmigłowiec. Nie prawdaż? Azymut był bardzo dobrze przygotowany na koniec świata. Mogę zdobyć wszystko czego tylko będę lub będziemy potrzebować. Placówka, którą zwiedziłem, jest w bardzo dobrym stanie. Sam reaktor możliwe, że byłby nadal funkcjonalny. 
+- Hmm. Może po prostu straciłam całą nadzieję. 
+- Może nie przywrócę twoich ukochanych sióstr do życia, ale zawsze można zrobić nowe. Obiekty 150 miały bardzo małą różnorodność genetyczną. Będą wyglądać identycznie, dzięki twoim wspomnieniom, może uda się zrekonstruować ich osobowość. 
+
+Iris zamknęła oczy i położyła się na ziemi. 
+
+- Zabawne. Podobne rzeczy obiecywałeś ostatnim razem, tuż przed tym jak wyruszyłeś na swoją ostatnią misję. 
+- Czy jesteś mi wstanie przypomnieć cokolwiek z tego? 
+- A otworzysz swój umysł? 
+- Nie jestem pewien, czy ty sama tego chcesz. Wierzę, że przeżyłaś wiele, ale możesz nie być gotowa na to co zobaczysz. 
+- Nie będę zaglądać do twoich wspomnień.  
+- Obydwoje wiemy, że kłamiesz. 
+- Fakt. 
+- Do dobrze. 
+
+Zdjął zabezpieczenia. Świat przed nim rozmył się jak we śnie. Bardzo nie lubił tego uczucia. Przypominało mu to o licznych symulacjach, których doświadczył, gdy trenowano jego jaźń. W teorii nie powinien ich nawet pamiętać, ale jako część eksperymenty pozostawiono te wspomnienia wszystkim łowcom. 
+
+Zobaczył jedną z nich. Był ciemnej grocie trzymając pochodnię w lewej ręce i włócznie w prawej. Potem kilka innych wymieszanych ze wspomnieniami, których wolałby nie zdradzać. Iris zatrzymała się na widoku bazy księżycowej na tle tarczy Ziemii. 
+
+- Byłeś na księżycu? - Jej głos rozbrzmiał w jego czaszce. 
+- Raz czy dwa. - Pomyślał, nie musiał robić nic więcej. 
+
+Teraz przeglądała nieskoczone korytarze podziemnych placówek. Może białych i szarych ścian. Nic dziwnego, pod ziemią spędził znaczną część swojego życia. Wspomnienia zaczynały robić się coraz mroczniejsze. Nagle połączenie się przerwało. Kronos wrócić do rzeczywistości. Iris poderwała się z ziemi i zwymiotowała. 
+
+- Ile to trwało? Trzydzieści sekund? - Zaśmiał się pochodząc do kobiety. 
+- Ta dziewczyna. Percy. Zawsze wydawała się taka miła i uprzejma. Jak ona... Jak ona mogła być zdolna do czegoś takiego. 
+
+Była blada a jej ciało oblewał zimny pot. Pomógł jej usiąść z powrotem pod drzew i podał manierkę z wodą. 
+
+- Mogę tylko powiedzieć, a nie mówiłem? 
+- A zamknij się. Myślałam, że ona jest albo była twoją siostrą? Zachowywaliście się jak rodzeństwo. 
+- To dość skomplikowane. 
+- Kurwa. - Odetchnęła z ulgą. - Nie wiem czego się spodziewałam. Nie bez powodu nazywali was łowcami. Ale przynajmniej odświeżyłam sobie moje wspomnienia. 
+
+Chip Kronosa wykrył iluzję. Odwrócił się i stanął jak wryty widząc twarz Percy. Drugi obiekt 258 świecił w ciemnościach nocy niczym anioł, ale nic rzucał światła na otoczenie. Stałą w krótkim rękawie, długich wojskowych spodniach i kaburą z pistoletem na udzie. Typowy ubiór, gdy nie byli wstanie podwyższonej gotowości. Brakowało na jej ciele fragmentów skóry większych od dłoni, które nie byłyby pokryte mniejszymi lub większymi bliznami. Lata walk z mutantami bardzo odbiły się na jej wizerunku. 
+
+- Na co się tak gapisz? - Odezwała się iluzja głosem Percy. 
+- Pytaj. - Powiedziała Iris. 
+- No dobrze. Co się stało przed naszą ostatnią feralną misją. 
+
+Iluzja podeszła do strumienia i zanurzyła rękę wodzie nie powodując żadnych zmian na powierzchnii, niczym duch. 
+- Byliśmy zmęczeni. - Mówiła. - Chcieliśmy wreszcie normalnie żyć. Bunkier Iris wydał się nam najbardziej odpowiedni, aby zacząć od początku. To było pierwsze miejsce, które było dla mnie jak dom.  Nikt nie wytykał nas palcami. Nikt nie traktował jak przedmioty. Idealny świat w, którym mogliśmy współegzystować z tymi samymi mutantami, na które przez lata polowaliśmy. Tego ci nigdy nie powiedział, ale planowaliśmy razem z Promykiem wysłać komunikat do innych łowców o naszej dezercji. Wiedzieliśmy, że Rozjemcy i Żniwiarze na pewno do nas dołączą a reszta nie będzie na nas polować. 
+- Tego nie wiedziałem. - Powiedział.
+- Percy stała się moją przyjaciółką i często się mi zwierzała. - Odpowiedziała Iris.
+- Myślałem, że to coś innego. - Stwierdził zaskoczony. 
+- Byłeś zawsze dla mnie zawsze szorstki. Ufałam ci, ale były pewne kwestie o których nie chciałam, żebyś wiedział. - Powiedziała iluzja. 
+- Co się stało tuż przed misją? 
+- Dostaliśmy komunikat o złamaniu zabezpieczeń jednej z sąsiednich placówke Azymutu. Byłeś tym bardzo podniecony. Krzyczałeś, że to nasza szansa, aby zapewnić sobie godną przyszłość. I poszliśmy za tobą. Na śmierć jak się później okazało. Jak zginęłam? Czy walczyłam dzielnie? - Oderwała wzrok od wody i spojrzała mu prosto w oczy. 
+- Trochę przedramatyzowane. - Stwierdził. 
+- Daj się ponieść. - Wyszeptała Iris. 
+
+Przyklęknął przy Percy. 
+- Po przybyciu na miejsce zorjetnowaliśmy się, że placówka została najechana przez zbuntowane obiekty 258. Drużynę zwaną potocznie Rycerzami lub Czarnymi Rycerzami. Mieliśmy mało amunicji, ale to nie była z góry przegrana walka. Podjęliśmy rękawice. Zaproponowałem Alfie, że jeśli oddadzą nam kryształowy dyskiem, który próbowali wynieść to puścimy ich wolno. Nic z tego. Nie chwieli współpracować. Zablokowaliśmy jedyne znane im wyście z kompleksu. Trzymaliśmy ich kilka godzin, nim do reszty się wystrzelaliśmy. Korzystając z tajnych przejść i tuneli ewakuacyjnych zakradliśmy się na ich tyły i rozpoczęła się bitwa na wszystko co mieliśmy. Miecze, siekiery, noże, sztylety. Pozostała tylko nasza dwójka. Emilia Katagawa, która przeżyła postrzał w szklanym mieście i jej świadomość została przeniesiona do obiektu 258, miała walizkę. 
