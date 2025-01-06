@@ -396,75 +396,81 @@ Wyjął prowiant z mokrego plecaka i podzielił się nim z Iris, która powoli d
 
 Spojrzał w dal, przywołując wspomnienia.
 
-– Poległem w walce. To była straszliwa klęska dla wszystkich moich towarzyszy. Nikt nie przeżył.
+– Poległem w walce. To była straszliwa klęska dla wszystkich moich towarzyszy. Nikt nie przeżył. - Zabrzmiał dość nienaturalnie dając znać, że nie chce o tym rozmawiać. 
 
 – Uznam to za dobre wytłumaczenie – ściągnęła kapelusz i położyła go pod krzakiem dzikich jeżyn.
 
-– Przepraszam, mam ogromną dziurę w pamięci. Straciłem wspomnienia z ostatnich dwóch miesięcy pomiędzy ostatnią kopią zapasową a ostatnimi dwudziestoma czterema godzinami mojego życia. Nie wiedziałem nawet, że spotkaliśmy się w tym okresie.
+– Przepraszam, mam ogromną dziurę w pamięci. - Powiedział po chwili siedzenia w ciszy. -  Straciłem wspomnienia z ostatnich dwóch miesięcy pomiędzy ostatnią kopią zapasową a ostatnimi dwudziestoma czterema godzinami mojego życia. Nie wiedziałem nawet, że spotkaliśmy się w tym okresie.
 
 Biokomputer poinformował go o nieudanej próbie włamania do systemu. Iris nie wierzyła mu, próbując dowiedzieć się prawdy.
 
 – To nie ma sensu – powiedział spokojnie.
 
-– A więc jednak to ty – zaśmiała się. – Jak wróciłeś do żywych? Co się z tobą działo?
+– A więc jednak to ty! – zaśmiała się z niedowierzaniem. – Jak wróciłeś do żywych? Co się z tobą działo?
 
-– Najpierw moje pytanie. Jak mnie znalazłaś? Jak w ogóle tam trafiłaś?
+– Najpierw moje pytanie. Jak mnie znalazłaś? Jak w ogóle tam trafiłaś? - Wykorzystał okazję. 
 
-– Trywialne pytanie...
+– Och, to było trywialne... - Machnęła ręką jakby odpowiadała na pytanie niemądrego studenta. 
 
-– Śmigłowiec... Zdecydowanie mało taktowna zagrywka – westchnął. – Zdecydowanie mogłem odpowiedzieć sobie na to pytanie zupełnie sam. No dobra, niech ci będzie. Dwa dni temu załadowali moją świadomość do nowego ciała.
+– Śmigłowiec... Zdecydowanie mało taktowna zagrywka – westchnął, z wyraźnym zmęczeniem. – Powinienem się był domyślić. Zmarnowałem swoje pytanie... No dobra, niech ci będzie. Dwa dni temu załadowali moją świadomość do nowego ciała.
 
-– Ha... Podejrzewałam, że przeleżałeś zahibernowany w jakimś słoju osiemset lat i system podtrzymywania życia wreszcie zawiódł.
+– Ha... Podejrzewałam, że przeleżałeś zahibernowany w jakimś słoju osiemset lat i system podtrzymywania życia wreszcie zawiódł. - Mówiła i zachowywała się dokładanie tak jak ją zapamiętał. 
 
 Kronos prawie się zakrztusił.
 
-– Ile? – zaniemówił.
+– Ile? – zaniemówił, zdumiony.
 
-– Plus minus. Straciłam rachubę czasu.
+– Plus minus. Straciłam rachubę czasu. - Ton jej głosu się nie zmienił. 
 
-Chwycił się za głowę, potrzebując chwili, aby się opanować. Iris ponownie próbowała wniknąć do jego świadomości, lecz znów bezskutecznie.
+Chwycił się za głowę, próbując zebrać myśli. Iris ponownie próbowała wniknąć do jego świadomości, lecz znów bezskutecznie.
 
-– No dobrze, co się stało przez te osiem... – Liczba nie mogła przejść mu przez gardło. – Osiemset lat?
+– No dobrze, co się stało przez te osiem... – Liczba zdawała się niemożliwa do wypowiedzenia. – Osiemset lat?
 
-– Ludzkość, po trzeciej fali mutantów wypuszczonych przez Azymut, została cofnięta do epoki kamienia łupanego. Rok później jakiś wirus, zapewne również pochodzący od tej przeklętej korporacji, wybił cały mój personel, pozostawiając przy życiu jedynie obiekty i ludzi. To znaczy mniej niż pięć procent populacji placówki, którą nazywałam domem. Próbowałam kontynuować moje badania, ale czas zniszczył wszystko, nad czym pracowałam. Stałam się wędrowną medyczką, czarownicą, szamanką. Jak zwał, tak zwał. Tak minęła mi dosłowna wieczność.
+– Ludzkość cofnęła się do epoki kamienia łupanego po trzeciej fali mutantów wypuszczonych przez Azymut. - Mówiła jakby od niechcenia, podobnie jak on na samym początku. - Rok później jakiś wirus, zapewne również od tej przeklętej korporacji, wybił moją załogę, pozostawiając przy życiu jedynie obiekty i garstkę ludzi. To znaczy mniej niż pięć procent populacji placówki, którą nazywałam domem. Próbowałam kontynuować badania, ale czas zniszczył wszystko. Stałam się wędrowną medyczką, szamanką... - Zapałzowała jakby szukała w pamięci innych tytułów. - Jakkolwiek to nazwać. I tak spędziłam całą wieczność. 
 
-– Zapewne miałaś setki przygód.
+– Pewnie miałaś setki przygód. - Można było usłyszeć nutkę rozczarowania w jego głosie z odrobiną zazdrości. Czuł się jakby zaspał na bardzo ważne wydarzenie. 
 
-– Tak. Byłam świadkiem, jak moje siostry dziczeją, jak pochłania je szaleństwo.
+– Owszem, byłam świadkiem, jak moje siostry dziczeją, jak pochłania je szaleństwo. - Zabrzmiała z lekką wściekłością i wyrzutem. 
 
-– Ile obiektów 150 przetrwało do dziś?
+Kronos domyślał się, że chodziło jej o inne obiekty jej typu. 
 
-– Garstka. Większość żyje teraz w głębokich borach i poluje na przejezdnych.
+– Ile obiektów 150 przetrwało do dziś? - Ugryzł się w język. Nie był pewien, czy to było odpowiednie pytanie w tym momencie. 
 
-– A Mira i Selene?
+– Garstka. Większość z nich żyje teraz w głębokich borach i poluje na przejezdnych. - Wyrzut zmienił się teraz w odrazę. 
 
-– Po czasie, gdy było pewne, że coś wam się stało, wybrały się w podróż, aby odnaleźć jakąś cywilizację. Zginęły z rąk kogoś, kogo nazywali Czarnym Rycerzem – łzy spłynęły jej po policzkach. – Chociaż po czasie stwierdzam, że może to i lepiej. Nie musiały oglądać tyle okropnych rzeczy, co ja – oparła głowę o korę drzewa. – Dlaczego twoi o tobie zapomnieli? – spytała po chwili.
+– A co z Mirą i Selene? - Zapytał nagle przypominając sobie te dwa imiona. 
 
-– Zapuściłem się dość głęboko, aby dostać się do archiwum – wyjął z plecaka puszkę ze szklanymi dyskami. – Pozwoli mi to zacząć od nowa.
+– Kiedy zaginęliście, a nadzieja na wasz powrót malała, wyruszyły w podróż, by znaleźć inną cywilizację. Niestety, zginęły z rąk kogoś znanego jako Czarny Rycerz – łzy spłynęły jej po policzkach. – Chociaż teraz myślę, że może to lepiej. Nie widziały tych wszystkich okropieństw, które ja musiałam oglądać – oparła głowę o korę drzewa ocierając policzek brudnym rękawem. – Dlaczego twoi przyjaciele o tobie zapomnieli? – zapytała po chwili ciszy, gdy doprowadziła się psychicznie do ładu. 
 
-– Powodzenia. Wszystkie relikty starego świata zjadła rdza.
+– Zapędziłem się dość daleko, żeby dostać się do archiwum – wyjął z plecaka puszkę z kilkoma szklanymi dyskami. – Pomoże mi to zacząć od nowa. - Przeszło mu przez myśl, że będzie żałował tego zwierzenia w niedalekiej przyszłości. 
 
-– Widziałaś śmigłowiec, prawda? Azymut był bardzo dobrze przygotowany na koniec świata. Mogę zdobyć wszystko, czego tylko będziemy potrzebować. Placówka, którą zwiedziłem, jest w bardzo dobrym stanie. Sam reaktor może wciąż być funkcjonalny.
+– Powodzenia. Wszystkie relikty starego świata zjadła już rdza. - Było czuć, że ona sama próbowała czegoś podobnego. 
 
-– Hmm. Może po prostu straciłam całą nadzieję.
+– Widziałaś śmigłowiec, prawda? Azymut był dobrze przygotowany na apokalipsę. Mam dostęp do wszystkiego, czego tylko potrzebujemy. Placówka, którą odwiedziłem, nadal jest w bardzo dobrym stanie. Nawet reaktor może być wciąż funkcjonalny. - Mówił z wyczuwalną ekscytacja w głosie. 
 
-– Może nie przywrócę twoich ukochanych sióstr do życia, ale zawsze można stworzyć nowe. Obiekty 150 miały bardzo małą różnorodność genetyczną. Będą wyglądać identycznie, a dzięki twoim wspomnieniom, może uda się zrekonstruować ich osobowość.
+– Hmm... Może po prostu straciłam już wszelką nadzieję. - Stwierdziła bez emocji. 
+
+– Może nie potrafię przywrócić twoich ukochanych sióstr do życia, ale zawsze możemy stworzyć nowe. Obiekty 150 miały niewielką różnorodność genetyczną. Będą wyglądały identycznie, a przy pomocy twoich wspomnień, może uda się odtworzyć ich osobowość. - Próbował przekonać ją jakoś do współpracy. 
 
 Iris zamknęła oczy i położyła się na ziemi.
 
-– Zabawne. Podobne rzeczy obiecywałeś ostatnim razem, tuż przed tym, jak wyruszyłeś na swoją ostatnią misję.
+– Zabawne. Obiecywałeś podobne rzeczy ostatnim razem, tuż przed swoją ostatnią misją. - Wyczuwając jego plan. 
 
-– Czy jesteś w stanie przypomnieć mi cokolwiek z tego?
+Kronos zdziwił się. 
 
-– A otworzysz swój umysł?
+– Czy jesteś w stanie przypomnieć mi cokolwiek z tego? 
 
-– Nie jestem pewien, czy ty sama tego chcesz. Wierzę, że przeżyłaś wiele, ale możesz nie być gotowa na to, co zobaczysz.
+– Otworzysz swój umysł? - Pytała z lekkim znudzeniem jakby robiła to już setki razy jednocześnie udając zmęczenie, jakby zaraz miała zasnąć. 
 
-– Nie będę zaglądać do twoich wspomnień.
+– Nie wiem, czy ty sama jesteś na to gotowa. Wiem, że przeszłaś wiele, ale możesz nie być gotowa, na to co odkryjesz. - Mówił szczerze. 
 
-– Obydwoje wiemy, że kłamiesz.
+– Nie będę zaglądać do twoich wspomnień. - Uśmiechnęła się pod nosem. 
 
-– Fakt.
+– Oboje wiemy, że kłamiesz. - Stwierdził pewnie.
+
+– Masz rację. - Uśmieszek nadal nie znikał z jej ust. 
+
+Westchnął jakby właśnie kłócił się z małym dzieckiem. Zastanowił się tylko przez chwilę do jakich wspomnień się dokopie i jaki ma w tym cel. Jednak w tej sytuacji nie miało to jakiegoś większego znaczenia. Nie byli wrogami, tak przynajmniej mu się wydawało. 
 
 – No dobrze.
 
