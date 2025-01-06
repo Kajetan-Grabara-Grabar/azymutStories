@@ -384,95 +384,146 @@ Psychiczny pisk rozbrzmiał w eterze. Kronos przez ułamek sekundy poczuł, jakb
 
 Kobieta dość szybko opadła z sił. Włożył ją sobie na plecy, nim zdążyła upaść, i kontynuował ucieczkę. Po około dwóch kilometrach znalazł jakiś płytki strumień. Szedł w górę niego, póki nie zapadł mrok. Dopiero wtedy zdjął z siebie omdlałą Iris i położył ją pod jedną z wierzb, której gałązki dotykały tafli wody.
 
-Usiadł na mokrej ziemi. Las wokół nich zaczął ożywać nocnymi dźwiękami. Pokrzykiwania nocnych ptaków i szelest drobnych stworzeń w zaroślach przywodziły na myśl spokojne chwile z przeszłości, gdy w czasie wolnym razem z Percy, Afrą i Promykiem robili wypady w nieznane, by odreagować koszmary ich codziennych zadań i obowiązków. 
+Usiadł na mokrej ziemi, otulony gęstą ciemnością lasu. Nocne dźwięki ożywały wokół niego, owiewając go wspomnieniami. Pokrzykiwania ptaków i delikatny szelest stworzeń w zaroślach przywodziły na myśl spokojne chwile z przeszłości. Wtedy, wraz z Percy, Afrą i Promykiem, oddawali się wyprawom w nieznane, próbując odreagować codzienne zmagania i obowiązki.
 
-Wyjął prowiant mokrego plecaka i podzielił z Iris, która zaczynała dochodzić do siebie. Była słaba, niedożywiona. Życie w świecie po końcu ludzkości musiało być dla niej nadzwyczaj trudne. 
+Wyjął prowiant z mokrego plecaka i podzielił się nim z Iris, która powoli dochodziła do siebie. Była widocznie wycieńczona. Życie w świecie po upadku ludzkości było dla niej nad wyraz trudne.
 
-- Myślałam, że jesteś duchem. Wspomnieniem, które śni mi się na jawie. - Mówiła jedząc kawałek suchara. 
-- Miło mi cię zaskoczyć. - Uśmiechnął się wgryzając się w pasek suszonej wołowiny. 
-- Czekałyśmy na ciebie. Wiedziałem, że kiedyś wrócisz, ale moje siostry zwątpiły i opuściły schronienie. - Mówiła z lekkim żalem i wrzutem w głosie. - Co się stało? 
+– Myślałam, że jesteś duchem. Wspomnieniem, które śni mi się na jawie – mówiła, zjadłszy kawałek suchara.
 
-Spojrzał w dal przywołując wspomnienia. 
+– Miło mi cię zaskoczyć – uśmiechnął się, gryząc pasek suszonej wołowiny.
 
-- Poległem w walce. To była bardzo krwawa klęska dla wszystkich moich towarzyszy. Nikt nie przeżył. 
-- Uznam to za dobre wytłuczenie. - Ściągnęła to kapelusz i położyła go pod krzakiem dzikich jeżyn. 
-- Przepraszam, mam ogromną dziurę w pamięci. Straciłem wspomnienia z ostatnich dwóch miesięcy pomiędzy ostatnią kopią zapasową, a ostatnimi dwudziestoma czterema godzinami mojego życia. Nie wiedziałem nawet, że spotkaliśmy się w tym okresie. 
+– Czekałyśmy na ciebie. Wiedziałam, że kiedyś wrócisz, ale moje siostry zwątpiły i opuściły schronienie – mówiła z lekkim żalem i wyrzutem w głosie. – Co się stało?
 
-Biokomputer poinformował go nieudanej próbie włamania do systemu. Iris nie wierzyła mu i chciała dobrać się do jego świadomości, aby ustalić prawdę. 
+Spojrzał w dal, przywołując wspomnienia.
 
-- To nie ma sensu. - Powiedział spokojnie. 
-- A więc jednak to ty. - Zaśmiała się. - Jak wróciłeś do żywych? Co się z tobą działo? 
-- Wpierw moje pytanie. Jak mnie znalazłaś? Jak się w ogólne tam zalazłaś? 
-- Trywialne pytanie. 
-- Śmigłowiec... Zdecydowanie mało taktowna zagrywka. - Westchnął. - Zdecydowanie mogłem opowiedzieć sobie na to pytanie zupełnie sam. No dobra, niech ci będzie. Dwa dni temu załadowali moją świadomość do nowego ciała. 
-- Ha... Podejrzewała, że przeleżałeś zahibernowany w jakimś słoju osiemset lat i system podtrzymywania życia wreszcie nawalił. 
+– Poległem w walce. To była straszliwa klęska dla wszystkich moich towarzyszy. Nikt nie przeżył.
 
-Kronos prawie się zachłysnął. 
-- Ile? - Zaniemówił. 
-- Plus minut. Straciłam rachubę czasu. 
+– Uznam to za dobre wytłumaczenie – ściągnęła kapelusz i położyła go pod krzakiem dzikich jeżyn.
 
-Chwycił się za głowę. Potrzebował chwili, aby się opanować. Iris po raz kolejny próbowała wejść do jego świadomości, po raz kolejny nieskutecznie. 
+– Przepraszam, mam ogromną dziurę w pamięci. Straciłem wspomnienia z ostatnich dwóch miesięcy pomiędzy ostatnią kopią zapasową a ostatnimi dwudziestoma czterema godzinami mojego życia. Nie wiedziałem nawet, że spotkaliśmy się w tym okresie.
 
-- No dobrze. Co się stało przez te osiem.... - Liczba nie mogła mu przejść przez gardło. - Osiemset lat? 
-- Ludzkość po trzeciej fali mutantów wypuszczonych przez Azymut została cofnięta do epoki kamienia łupanego. Rok później jakiś wirus, zapewnie również pochodzący od tej pierdolonej korporacji, wybił cały mój personel pozostawiając przy życiu jedynie obiekty i ludzi. Czyli mniej niż pięć procent populacji placówki, którą nazywałam domem... Próbowałam kontynuować moje badania, ale czas zniszczył wszystko nad czym pracowałam. Zostałam wędrowną medyczką, czarownicą, szamanką. Jak zwał tak zwał. Tak minęła mi dosłowna wietrzność. 
-- Zapewne miałaś setki przygód. 
-- Tak. Byłam światkiem jak moje siostry dziczeją, jak pochłania je szaleństwo. 
-- Ile obiektów 150 przetrwało do teraz? 
-- Garstka. Większość, życie teraz w głębokich borach i poluje na przejezdnych. 
-- A Mira i Selene? 
-- Po czasie, gdy już było pewne, że coś wam się stało wybrały się podróż w celu znalezienia jakieś cywilizacji. Zginęły z rąk kogoś kogo nazywali Czarnym Rycerzem. - Łzy pociekły jej po policzkach. - Chociaż po czasie stwierdzam, że może to i lepiej. Nie musiały oglądać tyle okropnych rzeczy co ja. - Oparła głowę o korę. - Dlaczego twoi o tobie zapomnieli? - Spytała po chwili. 
-- Zapuściłem się dość głęboko, aby dostać się do archiwum. - Wyjął z plecaka puszkę ze szklanymi dyskami. - To pozwoli mi zacząć od nowa. 
-- Powodzenia. Wszystkie relikty starego świata zjadła rdza. 
-- Widziałaś śmigłowiec. Nie prawdaż? Azymut był bardzo dobrze przygotowany na koniec świata. Mogę zdobyć wszystko czego tylko będę lub będziemy potrzebować. Placówka, którą zwiedziłem, jest w bardzo dobrym stanie. Sam reaktor możliwe, że byłby nadal funkcjonalny. 
-- Hmm. Może po prostu straciłam całą nadzieję. 
-- Może nie przywrócę twoich ukochanych sióstr do życia, ale zawsze można zrobić nowe. Obiekty 150 miały bardzo małą różnorodność genetyczną. Będą wyglądać identycznie, dzięki twoim wspomnieniom, może uda się zrekonstruować ich osobowość. 
+Biokomputer poinformował go o nieudanej próbie włamania do systemu. Iris nie wierzyła mu, próbując dowiedzieć się prawdy.
 
-Iris zamknęła oczy i położyła się na ziemi. 
+– To nie ma sensu – powiedział spokojnie.
 
-- Zabawne. Podobne rzeczy obiecywałeś ostatnim razem, tuż przed tym jak wyruszyłeś na swoją ostatnią misję. 
-- Czy jesteś mi wstanie przypomnieć cokolwiek z tego? 
-- A otworzysz swój umysł? 
-- Nie jestem pewien, czy ty sama tego chcesz. Wierzę, że przeżyłaś wiele, ale możesz nie być gotowa na to co zobaczysz. 
-- Nie będę zaglądać do twoich wspomnień.  
-- Obydwoje wiemy, że kłamiesz. 
-- Fakt. 
-- Do dobrze. 
+– A więc jednak to ty – zaśmiała się. – Jak wróciłeś do żywych? Co się z tobą działo?
 
-Zdjął zabezpieczenia. Świat przed nim rozmył się jak we śnie. Bardzo nie lubił tego uczucia. Przypominało mu to o licznych symulacjach, których doświadczył, gdy trenowano jego jaźń. W teorii nie powinien ich nawet pamiętać, ale jako część eksperymenty pozostawiono te wspomnienia wszystkim łowcom. 
+– Najpierw moje pytanie. Jak mnie znalazłaś? Jak w ogóle tam trafiłaś?
 
-Zobaczył jedną z nich. Był ciemnej grocie trzymając pochodnię w lewej ręce i włócznie w prawej. Potem kilka innych wymieszanych ze wspomnieniami, których wolałby nie zdradzać. Iris zatrzymała się na widoku bazy księżycowej na tle tarczy Ziemii. 
+– Trywialne pytanie...
 
-- Byłeś na księżycu? - Jej głos rozbrzmiał w jego czaszce. 
-- Raz czy dwa. - Pomyślał, nie musiał robić nic więcej. 
+– Śmigłowiec... Zdecydowanie mało taktowna zagrywka – westchnął. – Zdecydowanie mogłem odpowiedzieć sobie na to pytanie zupełnie sam. No dobra, niech ci będzie. Dwa dni temu załadowali moją świadomość do nowego ciała.
 
-Teraz przeglądała nieskoczone korytarze podziemnych placówek. Może białych i szarych ścian. Nic dziwnego, pod ziemią spędził znaczną część swojego życia. Wspomnienia zaczynały robić się coraz mroczniejsze. Nagle połączenie się przerwało. Kronos wrócić do rzeczywistości. Iris poderwała się z ziemi i zwymiotowała. 
+– Ha... Podejrzewałam, że przeleżałeś zahibernowany w jakimś słoju osiemset lat i system podtrzymywania życia wreszcie zawiódł.
 
-- Ile to trwało? Trzydzieści sekund? - Zaśmiał się pochodząc do kobiety. 
-- Ta dziewczyna. Percy. Zawsze wydawała się taka miła i uprzejma. Jak ona... Jak ona mogła być zdolna do czegoś takiego. 
+Kronos prawie się zakrztusił.
 
-Była blada a jej ciało oblewał zimny pot. Pomógł jej usiąść z powrotem pod drzew i podał manierkę z wodą. 
+– Ile? – zaniemówił.
 
-- Mogę tylko powiedzieć, a nie mówiłem? 
-- A zamknij się. Myślałam, że ona jest albo była twoją siostrą? Zachowywaliście się jak rodzeństwo. 
-- To dość skomplikowane. 
-- Kurwa. - Odetchnęła z ulgą. - Nie wiem czego się spodziewałam. Nie bez powodu nazywali was łowcami. Ale przynajmniej odświeżyłam sobie moje wspomnienia. 
+– Plus minus. Straciłam rachubę czasu.
 
-Chip Kronosa wykrył iluzję. Odwrócił się i stanął jak wryty widząc twarz Percy. Drugi obiekt 258 świecił w ciemnościach nocy niczym anioł, ale nic rzucał światła na otoczenie. Stałą w krótkim rękawie, długich wojskowych spodniach i kaburą z pistoletem na udzie. Typowy ubiór, gdy nie byli wstanie podwyższonej gotowości. Brakowało na jej ciele fragmentów skóry większych od dłoni, które nie byłyby pokryte mniejszymi lub większymi bliznami. Lata walk z mutantami bardzo odbiły się na jej wizerunku. 
+Chwycił się za głowę, potrzebując chwili, aby się opanować. Iris ponownie próbowała wniknąć do jego świadomości, lecz znów bezskutecznie.
 
-- Na co się tak gapisz? - Odezwała się iluzja głosem Percy. 
-- Pytaj. - Powiedziała Iris. 
-- No dobrze. Co się stało przed naszą ostatnią feralną misją. 
+– No dobrze, co się stało przez te osiem... – Liczba nie mogła przejść mu przez gardło. – Osiemset lat?
 
-Iluzja podeszła do strumienia i zanurzyła rękę wodzie nie powodując żadnych zmian na powierzchnii, niczym duch. 
-- Byliśmy zmęczeni. - Mówiła. - Chcieliśmy wreszcie normalnie żyć. Bunkier Iris wydał się nam najbardziej odpowiedni, aby zacząć od początku. To było pierwsze miejsce, które było dla mnie jak dom.  Nikt nie wytykał nas palcami. Nikt nie traktował jak przedmioty. Idealny świat w, którym mogliśmy współegzystować z tymi samymi mutantami, na które przez lata polowaliśmy. Tego ci nigdy nie powiedział, ale planowaliśmy razem z Promykiem wysłać komunikat do innych łowców o naszej dezercji. Wiedzieliśmy, że Rozjemcy i Żniwiarze na pewno do nas dołączą a reszta nie będzie na nas polować. 
-- Tego nie wiedziałem. - Powiedział.
-- Percy stała się moją przyjaciółką i często się mi zwierzała. - Odpowiedziała Iris.
-- Myślałem, że to coś innego. - Stwierdził zaskoczony. 
-- Byłeś zawsze dla mnie zawsze szorstki. Ufałam ci, ale były pewne kwestie o których nie chciałam, żebyś wiedział. - Powiedziała iluzja. 
-- Co się stało tuż przed misją? 
-- Dostaliśmy komunikat o złamaniu zabezpieczeń jednej z sąsiednich placówke Azymutu. Byłeś tym bardzo podniecony. Krzyczałeś, że to nasza szansa, aby zapewnić sobie godną przyszłość. I poszliśmy za tobą. Na śmierć jak się później okazało. Jak zginęłam? Czy walczyłam dzielnie? - Oderwała wzrok od wody i spojrzała mu prosto w oczy. 
-- Trochę przedramatyzowane. - Stwierdził. 
-- Daj się ponieść. - Wyszeptała Iris. 
+– Ludzkość, po trzeciej fali mutantów wypuszczonych przez Azymut, została cofnięta do epoki kamienia łupanego. Rok później jakiś wirus, zapewne również pochodzący od tej przeklętej korporacji, wybił cały mój personel, pozostawiając przy życiu jedynie obiekty i ludzi. To znaczy mniej niż pięć procent populacji placówki, którą nazywałam domem. Próbowałam kontynuować moje badania, ale czas zniszczył wszystko, nad czym pracowałam. Stałam się wędrowną medyczką, czarownicą, szamanką. Jak zwał, tak zwał. Tak minęła mi dosłowna wieczność.
 
-Przyklęknął przy Percy. 
-- Po przybyciu na miejsce zorjetnowaliśmy się, że placówka została najechana przez zbuntowane obiekty 258. Drużynę zwaną potocznie Rycerzami lub Czarnymi Rycerzami. Mieliśmy mało amunicji, ale to nie była z góry przegrana walka. Podjęliśmy rękawice. Zaproponowałem Alfie, że jeśli oddadzą nam kryształowy dyskiem, który próbowali wynieść to puścimy ich wolno. Nic z tego. Nie chwieli współpracować. Zablokowaliśmy jedyne znane im wyście z kompleksu. Trzymaliśmy ich kilka godzin, nim do reszty się wystrzelaliśmy. Korzystając z tajnych przejść i tuneli ewakuacyjnych zakradliśmy się na ich tyły i rozpoczęła się bitwa na wszystko co mieliśmy. Miecze, siekiery, noże, sztylety. Pozostała tylko nasza dwójka. Emilia Katagawa, która przeżyła postrzał w szklanym mieście i jej świadomość została przeniesiona do obiektu 258, miała walizkę. 
+– Zapewne miałaś setki przygód.
+
+– Tak. Byłam świadkiem, jak moje siostry dziczeją, jak pochłania je szaleństwo.
+
+– Ile obiektów 150 przetrwało do dziś?
+
+– Garstka. Większość żyje teraz w głębokich borach i poluje na przejezdnych.
+
+– A Mira i Selene?
+
+– Po czasie, gdy było pewne, że coś wam się stało, wybrały się w podróż, aby odnaleźć jakąś cywilizację. Zginęły z rąk kogoś, kogo nazywali Czarnym Rycerzem – łzy spłynęły jej po policzkach. – Chociaż po czasie stwierdzam, że może to i lepiej. Nie musiały oglądać tyle okropnych rzeczy, co ja – oparła głowę o korę drzewa. – Dlaczego twoi o tobie zapomnieli? – spytała po chwili.
+
+– Zapuściłem się dość głęboko, aby dostać się do archiwum – wyjął z plecaka puszkę ze szklanymi dyskami. – Pozwoli mi to zacząć od nowa.
+
+– Powodzenia. Wszystkie relikty starego świata zjadła rdza.
+
+– Widziałaś śmigłowiec, prawda? Azymut był bardzo dobrze przygotowany na koniec świata. Mogę zdobyć wszystko, czego tylko będziemy potrzebować. Placówka, którą zwiedziłem, jest w bardzo dobrym stanie. Sam reaktor może wciąż być funkcjonalny.
+
+– Hmm. Może po prostu straciłam całą nadzieję.
+
+– Może nie przywrócę twoich ukochanych sióstr do życia, ale zawsze można stworzyć nowe. Obiekty 150 miały bardzo małą różnorodność genetyczną. Będą wyglądać identycznie, a dzięki twoim wspomnieniom, może uda się zrekonstruować ich osobowość.
+
+Iris zamknęła oczy i położyła się na ziemi.
+
+– Zabawne. Podobne rzeczy obiecywałeś ostatnim razem, tuż przed tym, jak wyruszyłeś na swoją ostatnią misję.
+
+– Czy jesteś w stanie przypomnieć mi cokolwiek z tego?
+
+– A otworzysz swój umysł?
+
+– Nie jestem pewien, czy ty sama tego chcesz. Wierzę, że przeżyłaś wiele, ale możesz nie być gotowa na to, co zobaczysz.
+
+– Nie będę zaglądać do twoich wspomnień.
+
+– Obydwoje wiemy, że kłamiesz.
+
+– Fakt.
+
+– No dobrze.
+
+Zdjął zabezpieczenia. Świat przed nim rozmył się, jak we śnie. Bardzo nie lubił tego uczucia. Przypominało mu to o licznych symulacjach, których doświadczył w trakcie treningu swojej jaźni. W teorii nie powinien ich nawet pamiętać, ale jako część eksperymentu pozostawiono te wspomnienia wszystkim łowcom.
+
+Zobaczył jedną z tych symulacji. Był ciemnej grocie, trzymając pochodnię w lewej ręce i włócznię w prawej. Potem kilka innych obrazów przemknęło przez jego umysł, wymieszanych ze wspomnieniami, które wolałby zachować dla siebie. Iris zatrzymała się na widoku bazy pośród białego regolitu, na tle tarczy Ziemi.
+
+– Byłeś na Księżycu? – Jej głos rozbrzmiał w jego umyśle.
+
+– Raz czy dwa – pomyślał. Nie musiał robić nic więcej.
+
+Teraz przeglądała nieskończone korytarze podziemnych placówek. Może białe i szare ściany. Nic dziwnego, pod ziemią spędził znaczną część swojego życia. Wspomnienia zaczynały robić się coraz bardziej mroczne. Nagle połączenie przerwało się. Kronos powrócił do rzeczywistości, jakby za pstryknięciem palców hipnotyzera. Iris poderwała się z ziemi i zwymiotowała.
+
+– Ile to trwało? Trzydzieści sekund? – zaśmiał się, podchodząc do niej.
+
+– Ta dziewczyna. Percy. Zawsze wydawała się taka miła i uprzejma. Jak ona... jak ona mogła być zdolna do czegoś takiego.
+
+Była blada, a jej ciało oblewał zimny pot. Pomógł jej usiąść z powrotem pod drzewem i podał manierkę z wodą.
+
+– Mogę tylko powiedzieć: "a nie mówiłem?"
+
+– A zamknij się. Myślałam, że ona jest... albo była twoją siostrą? Zachowywaliście się jak rodzeństwo.
+
+– To dość skomplikowane.
+
+– Kurwa – odetchnęła z ulgą. – Nie wiem, czego się spodziewałam. Nie bez powodu nazywali was łowcami. Ale przynajmniej odświeżyłam sobie moje wspomnienia.
+
+Chip Kronosa wykrył iluzję. Odwrócił się i zamarł, widząc twarz Percy. Drugi obiekt 258 świecił w ciemnościach nocy niczym anioł, lecz nie rzucał światła na otoczenie. Stała w krótkim rękawie, długich wojskowych spodniach i z kaburą na udzie. Typowy ubiór, gdy nie znajdowali się w stanie podwyższonej gotowości. Jej ciało było pełne blizn – lata walk z mutantami odcisnęły na niej swoje piętno.
+
+– Na co się tak gapisz? – usłyszał głos Percy.
+
+– Pytaj – powiedziała Iris.
+
+– No dobrze. Co się stało przed naszą ostatnią feralną misją?
+
+Iluzja podeszła do strumienia i zanurzyła rękę w wodzie, nie powodując żadnych zmian na jej powierzchni, niczym duch.
+
+– Byliśmy zmęczeni – mówiła. – Chcieliśmy wreszcie normalnie żyć. Bunkier Iris wydawał się nam najbardziej odpowiedni, aby zacząć od początku. To było pierwsze miejsce, które było dla mnie jak dom. Nikt nie wytykał nas palcami. Nikt nie traktował nas jak przedmioty. Idealny świat, w którym mogliśmy współegzystować z tymi samymi mutantami, na które przez lata polowaliśmy. Tego ci nigdy nie powiedział, ale planowaliśmy razem z Promykiem wysłać komunikat do innych łowców o naszej dezercji. Wiedzieliśmy, że Rozjemcy i Żniwiarze na pewno do nas dołączą, a reszta nie będzie nas ścigać.
+
+– Tego nie wiedziałem – przyznał.
+
+– Percy stała się moją przyjaciółką i często się mi zwierzała – odpowiedziała Iris.
+
+– Myślałem, że to coś innego – stwierdził zaskoczony.
+
+– Byłeś zawsze dla mnie szorstki. Ufałam ci, ale były pewne kwestie, o których nie chciałam, żebyś wiedział – powiedziała iluzja.
+
+– Co się stało tuż przed misją?
+
+– Dostaliśmy komunikat o złamaniu zabezpieczeń jednej z sąsiednich placówek Azymutu. Byłeś tym bardzo podniecony. Krzyczałeś, że to nasza szansa, aby zapewnić sobie godną przyszłość. I poszliśmy za tobą. Na śmierć, jak się później okazało. Jak zginęłam? Czy walczyłam dzielnie? – Oderwała wzrok od wody i spojrzała mu prosto w oczy.
+
+– Trochę przedramatyzowane – stwierdził.
+
+– Daj się ponieść – wyszeptała Iris.
+
+Przyklęknął przy Percym.
+
+- Po przybyciu na miejsce zorientowaliśmy się, że placówka została najechana przez zbuntowane obiekty 258. Drużynę, którą nazywamy "Rycerzami" lub "Czarnymi Rycerzami", ze względu na ich specyficzny styl bycia. Mieliśmy niewiele amunicji, ale walka nie była z góry przegrana. Podjęliśmy rękawicę. Zaproponowałem Alfie, że jeśli oddadzą nam kryształowy dysk, który próbowali wynieść, puścimy ich wolno. Nic z tego. Nie chcieli współpracować. Zablokowaliśmy jedyne znane im wyjście z kompleksu. Trzymaliśmy ich kilka godzin, aż wystrzelaliśmy się do reszty. Korzystając z tajnych przejść i tuneli ewakuacyjnych, zakradliśmy się na ich tyły i rozpoczęła się bitwa na całego. Używaliśmy wszystkiego, co mieliśmy: mieczy, siekier, noży, bagnetów. Została przy życiu tylko nasza dwójka.
+
+Rycerze nie zdawali sobie sprawy, że podsłuchiwaliśmy ich przez radio. Emilia Katakawa, o której myśleliśmy, że zginęła podczas bitwy o Szklane Miasto, miała walizkę z danymi i oddzieliła się od reszty. Wiedzieli, że jesteśmy rozbici, i chcieli uciec po cichu. Dopadłaś ją w jednej z hal parkowych. Powiedziałaś, że jest chroniona przez dwóch żołnierzy. To były ostatnie słowa, jakie nadałaś przez radio. Najpewniej rzuciłaś się na nich z balkonu z dwoma gladiusami w dłoniach. Nie wiem, co było dalej, ale najpewniej unieszkodliwiłaś obstawę i już miałaś dokonać zemsty na Emilii, gdy zostałaś powstrzymana przez wodza mutantów, których Rycerze wypuścili z najniższych poziomów.
+
+Dopadłem ich kilka minut później. Jedyna kobieta, którą spotkałem, nie miała przedramienia, a kikut był zabezpieczony stazą. Zakładam, że to była Katakawa. Była w ciele obiektu 258 i nie wyglądała jak dawniej. To znaczy, że strzał Cyphera w Szklanym Mieście, był śmiertelny. Ale wracając do opowieści: Emilia zamarła, widząc mnie. Przestrzeliłem jej krtań i kręgosłup — pewna śmierć, bez uszkodzenia jej chipu w mózgu. Za nią biegł ogromny mutant z karabinem antymateriałowym w łapach. Prawdopodobnie to on cię zabił. Niemniej dostał kulkę prosto między oczy. To był ostatni nabój, jaki miałem. Dobyłem miecz i rzuciłem się na hordę mutantów ryczących ze wściekłości i żądzy zemsty za wodza. Byłem szybki. Nie popełniłem żadnego błędu. Ostrze penetrowało ich ciała jak masło, lecz przeciwników było zbyt wielu.
