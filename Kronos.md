@@ -486,47 +486,47 @@ Teraz przeglądała nieskończone korytarze podziemnych placówek. Może białe 
 
 – Ile to trwało? Trzydzieści sekund? – zaśmiał się, podchodząc do niej.
 
-– Ta dziewczyna. Percy. Zawsze wydawała się taka miła i uprzejma. Jak ona... jak ona mogła być zdolna do czegoś takiego.
+– Ta dziewczyna, Percy... Zawsze wydawała się taka miła i uprzejma. Jak ona... jak ona mogła być zdolna do czegoś takiego? – Mamrotała półprzytomnie pod nosem.
 
 Była blada, a jej ciało oblewał zimny pot. Pomógł jej usiąść z powrotem pod drzewem i podał manierkę z wodą.
 
-– Mogę tylko powiedzieć: "a nie mówiłem?"
+– Mogę tylko powiedzieć: "a nie mówiłem?" 
 
-– A zamknij się. Myślałam, że ona jest... albo była twoją siostrą? Zachowywaliście się jak rodzeństwo.
+– A zamknij się. - Syknęła. - Myślałam, że ona jest... albo była twoją siostrą? Zachowywaliście się jak rodzeństwo. - Zaczynała wracać do siebie.
 
-– To dość skomplikowane.
+– To dość skomplikowane. - Próbował urwać temat. 
 
-– Kurwa – odetchnęła z ulgą. – Nie wiem, czego się spodziewałam. Nie bez powodu nazywali was łowcami. Ale przynajmniej odświeżyłam sobie moje wspomnienia.
+– Kurwa – odetchnęła z ulgą. – Nie wiem, czego się spodziewałam. Nie bez powodu nazywali was łowcami. Ale przynajmniej odświeżyłam sobie moje wspomnienia. - Wróciła do normalnego tonu.
 
-Chip Kronosa wykrył iluzję. Odwrócił się i zamarł, widząc twarz Percy. Drugi obiekt 258 świecił w ciemnościach nocy niczym anioł, lecz nie rzucał światła na otoczenie. Stała w krótkim rękawie, długich wojskowych spodniach i z kaburą na udzie. Typowy ubiór, gdy nie znajdowali się w stanie podwyższonej gotowości. Jej ciało było pełne blizn – lata walk z mutantami odcisnęły na niej swoje piętno.
+Chip Kronosa wykrył iluzję. Trochę od niechcenia odwrócił się i zamarł, widząc twarz Percy. Drugi obiekt 258 świecił w ciemnościach nocy niczym anioł, lecz nie rzucał światła na otoczenie. Stała w krótkim rękawie, długich wojskowych spodniach i z kaburą na udzie. Typowy ubiór, gdy nie znajdowali się w stanie podwyższonej gotowości. Jej ciało było pełne blizn – lata walk z mutantami odcisnęły na niej swoje piętno.
 
-– Na co się tak gapisz? – usłyszał głos Percy.
+– Na co się tak gapisz? – usłyszał dość agresywny głos Percy.
 
-– Pytaj – powiedziała Iris.
+– Pytaj. – Powiedziała Iris nakłaniając go do przedstawienia. 
 
-– No dobrze. Co się stało przed naszą ostatnią feralną misją?
+– No dobrze. - Westchnął zażenowany sytuacją. -  Co się stało przed naszą ostatnią feralną misją? - W ostatnim wyrazie było czuć, że nie przepada za rozmową z wyimaginowanymi bytami. 
 
 Iluzja podeszła do strumienia i zanurzyła rękę w wodzie, nie powodując żadnych zmian na jej powierzchni, niczym duch.
 
-– Byliśmy zmęczeni – mówiła. – Chcieliśmy wreszcie normalnie żyć. Bunkier Iris wydawał się nam najbardziej odpowiedni, aby zacząć od początku. To było pierwsze miejsce, które było dla mnie jak dom. Nikt nie wytykał nas palcami. Nikt nie traktował nas jak przedmioty. Idealny świat, w którym mogliśmy współegzystować z tymi samymi mutantami, na które przez lata polowaliśmy. Tego ci nigdy nie powiedział, ale planowaliśmy razem z Promykiem wysłać komunikat do innych łowców o naszej dezercji. Wiedzieliśmy, że Rozjemcy i Żniwiarze na pewno do nas dołączą, a reszta nie będzie nas ścigać.
+– Byliśmy zmęczeni – mówiła. – Chcieliśmy wreszcie normalnie żyć. - Przemawiał przez nią żal. - Bunkier Iris wydawał się nam najbardziej odpowiedni, aby zacząć od początku. To było pierwsze miejsce, które było dla mnie jak dom. Nikt nie wytykał nas palcami. Nikt nie traktował nas jak przedmioty. Idealny świat, w którym mogliśmy współegzystować z tymi samymi mutantami, na które przez lata polowaliśmy. Tego ci nigdy nie powiedział, ale planowaliśmy razem z Promykiem wysłać komunikat do innych łowców o naszej dezercji. Wiedzieliśmy, że Rozjemcy i Żniwiarze na pewno do nas dołączą, a reszta nie będzie nas ścigać.
 
-– Tego nie wiedziałem – przyznał.
+– Tego nie wiedziałem – Przyznał powoli wczuwając się w rolę. 
 
-– Percy stała się moją przyjaciółką i często się mi zwierzała – odpowiedziała Iris.
+– Percy stała się moją przyjaciółką i często się mi zwierzała – odpowiedziała Iris rozjaśniając sytuację. 
 
-– Myślałem, że to coś innego – stwierdził zaskoczony.
+– Myślałem, że to coś innego – Stwierdził zaskoczony.
 
 – Byłeś zawsze dla mnie szorstki. Ufałam ci, ale były pewne kwestie, o których nie chciałam, żebyś wiedział – powiedziała iluzja.
 
-– Co się stało tuż przed misją?
+– Co się stało tuż przed misją? - Nakłaniał do przejścia do sedna. Nie chciał słuchać wywodów co zrobił dobrze a co nie. 
 
-– Dostaliśmy komunikat o złamaniu zabezpieczeń jednej z sąsiednich placówek Azymutu. Byłeś tym bardzo podniecony. Krzyczałeś, że to nasza szansa, aby zapewnić sobie godną przyszłość. I poszliśmy za tobą. Na śmierć, jak się później okazało. Jak zginęłam? Czy walczyłam dzielnie? – Oderwała wzrok od wody i spojrzała mu prosto w oczy.
+– Dostaliśmy komunikat o złamaniu zabezpieczeń jednej z sąsiednich placówek Azymutu. Byłeś tym bardzo podniecony. Krzyczałeś, że to nasza szansa, aby zapewnić sobie godną przyszłość. I poszliśmy za tobą. Na śmierć, jak się później okazało. Jak zginęłam? - Zamilka na kilka sekund. Oderwała wzrok od wody i spojrzała mu prosto w oczy. - Czy walczyłam dzielnie? - Wyglądała jakby miała się zaraz rozpłakać. 
 
-– Trochę przedramatyzowane – stwierdził.
+– Trochę przedramatyzowane – Stwierdził oschle. 
 
 – Daj się ponieść – wyszeptała Iris.
 
-Przyklęknął przy Percym.
+Przewrócił oczami i przyklęknął przy Percym. Próbował ją chwycić za rękę ale nie było na czym się oprzeć. To ona chwyciła go za dłoń i ku przerażeniu stwierdził, że czuje ciepło jej ciała. 
 
 - Po przybyciu na miejsce zorientowaliśmy się, że placówka została najechana przez zbuntowane obiekty 258. Drużynę, którą nazywamy "Rycerzami" lub "Czarnymi Rycerzami", ze względu na ich specyficzny styl bycia. Mieliśmy niewiele amunicji, ale walka nie była z góry przegrana. Podjęliśmy rękawicę. Zaproponowałem Alfie, że jeśli oddadzą nam kryształowy dysk, który próbowali wynieść, puścimy ich wolno. Nic z tego. Nie chcieli współpracować. Zablokowaliśmy jedyne znane im wyjście z kompleksu. Trzymaliśmy ich kilka godzin, aż wystrzelaliśmy się do reszty. Korzystając z tajnych przejść i tuneli ewakuacyjnych, zakradliśmy się na ich tyły i rozpoczęła się bitwa na całego. Używaliśmy wszystkiego, co mieliśmy: mieczy, siekier, noży, bagnetów. Została przy życiu tylko nasza dwójka.
 
