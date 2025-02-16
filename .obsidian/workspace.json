@@ -40,7 +40,8 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "alphabetical"
+                "sortOrder": "alphabetical",
+                "autoReveal": false
               },
               "icon": "lucide-folder-closed",
               "title": "Files"
@@ -163,10 +164,10 @@
   },
   "active": "c7ce440fe8505c7b",
   "lastOpenFiles": [
-    "Kierunek_Intal.md",
-    "Kronos.md",
     "System.md",
     "Targ_Intal.md",
+    "Kronos.md",
+    "Kierunek_Intal.md",
     "Untitled",
     "Operacja_Intal.md",
     "README.md",

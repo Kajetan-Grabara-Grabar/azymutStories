@@ -532,4 +532,120 @@ Przewrócił oczami i przyklęknął przy Percym. Próbował ją chwycić za r
 
 Rycerze nie zdawali sobie sprawy, że podsłuchiwaliśmy ich przez radio. Emilia Katakawa, o której myśleliśmy, że zginęła podczas bitwy o Szklane Miasto, miała walizkę z danymi i oddzieliła się od reszty. Wiedzieli, że jesteśmy rozbici, i chcieli uciec po cichu. Dopadłaś ją w jednej z hal parkowych. Powiedziałaś, że jest chroniona przez dwóch żołnierzy. To były ostatnie słowa, jakie nadałaś przez radio. Najpewniej rzuciłaś się na nich z balkonu z dwoma gladiusami w dłoniach. Nie wiem, co było dalej, ale najpewniej unieszkodliwiłaś obstawę i już miałaś dokonać zemsty na Emilii, gdy zostałaś powstrzymana przez wodza mutantów, których Rycerze wypuścili z najniższych poziomów.
 
-Dopadłem ich kilka minut później. Jedyna kobieta, którą spotkałem, nie miała przedramienia, a kikut był zabezpieczony stazą. Zakładam, że to była Katakawa. Była w ciele obiektu 258 i nie wyglądała jak dawniej. To znaczy, że strzał Cyphera w Szklanym Mieście, był śmiertelny. Ale wracając do opowieści: Emilia zamarła, widząc mnie. Przestrzeliłem jej krtań i kręgosłup — pewna śmierć, bez uszkodzenia jej chipu w mózgu. Za nią biegł ogromny mutant z karabinem antymateriałowym w łapach. Prawdopodobnie to on cię zabił. Niemniej dostał kulkę prosto między oczy. To był ostatni nabój, jaki miałem. Dobyłem miecz i rzuciłem się na hordę mutantów ryczących ze wściekłości i żądzy zemsty za wodza. Byłem szybki. Nie popełniłem żadnego błędu. Ostrze penetrowało ich ciała jak masło, lecz przeciwników było zbyt wielu.
+Dopadłem ich kilka minut później. Jedyna kobieta, którą spotkałem, nie miała przedramienia, a kikut był zabezpieczony stazą. Zakładam, że to była Katakawa. Była w ciele obiektu 258 i nie wyglądała jak dawniej. To znaczy, że strzał Cyphera w Szklanym Mieście, był śmiertelny... - Trochę się zamyślił. -  Ale wracając do opowieści: Emilia zamarła widząc mnie. Przestrzeliłem jej krtań i kręgosłup — pewna śmierć, bez uszkodzenia jej chipu w mózgu. Za nią biegł ogromny mutant z karabinem antymateriałowym w łapach. Prawdopodobnie to on cię zabił. Niemniej dostał kulkę prosto między oczy. To był ostatni nabój, jaki miałem. Dobyłem miecz i rzuciłem się na hordę mutantów ryczących ze wściekłości i żądzy zemsty za wodza. Byłem szybki. Nie popełniłem żadnego błędu. Ostrze cięło ich ciała jak masło, lecz przeciwników było zbyt wielu. 
+
+
+Poprawił cuchnącą od łoju pelerynę, która zakrywała całe jego ciało. Pociągnął za zawieszenie karabinu, wsuwając go trochę wyżej pod ramię. Nadal miał do niego szybki dostęp, ale nikt z tubylców nie powinien zauważyć nic podejrzanego.
+
+– To była kiepska inwestycja – zagaił, naciągając kaptur na głowę. – Mogliśmy mu ukraść ten łachman, kiedy nie patrzył, albo chociaż trochę się potargować.
+
+Iris spojrzała na niego z zarozumiałością.
+
+– Od kiedy to jesteś ekspertem od miejscowego handlu? Jak dobrze pamiętam, jeszcze miesiąc temu byłeś tylko danymi na dysku – powiedziała dość charakterystycznym dla niej tonem, jakby zaraz miała wpisać mu ocenę do szkolnego dziennika.
+
+– Wziął za to prawie jedną czwartą uncji srebra. Trochę dużo jak na coś, co śmierdzi truchłem. Może nawet to z takowego ściągnął – próbował rozluźnić atmosferę.
+
+Rozdzielili się i ominęli wielką kałużę błota na środku duktu, przeciętego przez kolejny wóz.
+
+– Tak jak mówiłam, srebro nie jest dużo warte przez... – mówiła zmęczonym tonem starej nauczycielki.
+
+– Wiem, co mówiłaś – odrzekł lekceważąco. – Handlarze z królestwa Intal przybywają z południa i sowicie płacą srebrem za miejscowe towary, dzięki czemu ekonomia jest zależna od wymiany towarów z południem, co dodatkowo podsyca srebrną inflację – wziął głęboki oddech.
+
+– Szybko pojmujesz, mój uczniu – rzekła z uznaniem.
+
+Wypowiedział kilka słów w obcym języku, których znaczenia jak na razie jeszcze nie znał.
+
+– Nie kupię od ciebie suszonych grzybów – zaśmiała się. – Jeszcze kilka zwrotów i będziesz mógł zostać handlarzem.
+
+Wyszli z lasu, a ich oczom ukazał się potężny gród, którego masywna palisada wznosiła się, tworząc imponującą sylwetkę na tle rozciągającego się nieba. Drewno, z którego wykonano palisadę, nosiło ślady czasu, lecz wciąż pozostało solidne i budziło respekt. Droga prowadziła wprost do potężnej bramy, nad którą dumnie górowała malownicza drewniana baszta. Jej konstrukcja, mimo prostoty i surowości formy, miała w sobie coś artystycznego, dzięki misternie rzeźbionym detalom, przypominającym o zapomnianych legendach i dawnych czasach świetności.
+
+Przez niewielkie, wąskie okna baszty widać było strażników baczących na okolicę. Ubrani w pancerze o połysku dawno zdartego metalu, z pewnymi ruchami obserwowali zbliżających się nieznajomych. 
+
+Z gołębnika gdzieś w głębi osady zerwało się stado gołębi i zatoczyło okrąg nad dachami, aby po chwili skryć się gdzieś za zaostrzonymi palami. 
+
+- Czy to jest to słynne Tan'daless? - Spytał dokładnie znając odpowiedź. 
+- Wiesz, nie jestem pewna. - Odpowiedziała ironicznie. 
+
+Gród za palisadą nie przypominał niczego, co Kronos wcześniej widział. Drewniane domy z bali pokryte były strzechą, a wąskie ulice z chodnikami wyłożonymi drewnianymi deskami rozchodziły się jak promienie słońca od małego rynku w centrum osady. Zapach pieczonych dań, licznych ziół suszących się na zewnątrz oraz wszechobecnego dymu z palenisk mieszał się z wonią nieczystości.
+
+— Ale tu zaśmierdło! — spuentował, gdy mijali bawiące się dziecko jakiegoś mutanta, wpychające patyk w kałużę i chlapiące błotem na wszystkie strony.
+
+— Przyzwyczajaj się — odrzekła Iris. — Trochę tu zabawimy.
+
+— „Trochę" to znaczy ile? — dopytywał, nie ukrywając lekkiej wściekłości.
+
+— Jestem zmęczona, potrzebuję kilku dni na regenerację — mówiła spokojnie.
+
+— Mamy tylko sto kilometrów do celu, dam radę tam dojść w dwa dni. — To, co powiedziała kobieta, wydawało mu się trochę dziwne.
+
+— Ty może tak, ale dla mnie więcej niż kilka godzin marszu to udręka. — Westchnęła. — Poza tym, to nie era pośpiechu. Tutaj wszystko robi się wolno i na spokojnie. Rozejrzyj się, podłap języka, może zarób trochę grosza, żebyśmy wynajęli jakiś powóz. Nasza podróż będzie wygodniejsza.
+
+Łowca przewrócił oczami.
+
+— Gdzie się zatrzymamy? — spytał, rozumiejąc, że nic nie ugra.
+
+— My? — powiedziała ostentacyjnie. — Nie mam tyle pieniędzy, aby wykupić nocleg na nas oboje. Jesteś łowcą Azymutu, poradzisz sobie.
+
+Kronos stanął jak wryty.
+
+— Gdyby mi na tobie nie zależało, zgniótłbym ci czaszkę gołymi rękoma i dobrze wiesz, że nie żartuję. — Podniósł głos, ale nie krzyczał, aby nie zwrócić na siebie większej uwagi.
+
+Odwróciła się do niego i uśmiechnęła od ucha do ucha, nim zniknęła we wnętrzu miejscowej tawerny.
+
+— Kurwa — powiedział sam do siebie. — Gdybym wiedział, że tak to się skończy, przeszukałbym chociaż te ciała w korytarzu. Na pewno mieli trochę kruszcu pochowanego po kieszeniach. Powrót tam nie ma najmniejszego sensu, chociaż to całkiem niedaleko. Idąc do tego grodu, właściwie się cofnęliśmy.
+
+Strażnik w przeszywanej kurcie i specjalnie wyciętym hełmie na jego rogi spojrzał na niego krzywo, widząc, że mówi sam do siebie.
+
+— Ach, te kobiety — powiedział Kronos i odszedł w losowym kierunku.
+
+Rogacz pokręcił łbem, kompletnie nic nie rozumiejąc z tego, co Kronos mówi, i również odszedł w swoją stronę.
+
+Przerzucił plecak na przód i przeszukał jego zawartość. Szukał czegoś, co mógłby sprzedać, aby zdobyć choć trochę gotówki. Nie miał kompletnie nic. Latarka mogła mieć jakąś wartość, ale nie wiedział, jak prymitywni kupcy zareagują na ten "magiczny" przedmiot.
+
+- Co mogę zrobić? - Pomyślał, rozglądając się wokół. - Nigdy w sumie nie pracowałem. Zawsze mogłem liczyć na korporacyjny sprzęt i pieniądze. Większość moich umiejętności nie ma tutaj żadnej wartości, nie licząc tych stricte bojowych. Zabijanie mutantów na zlecenie też raczej nie wchodzi w grę.
+
+Zatrzymał go jakiś chłopiec o niebieskawej skórze i przenikliwych pomarańczowych oczach. Jeden z humanoidalnych mutantów, z którymi Kronos w przeszłości miał mało do czynienia. Dziecko mówiło coś do niego, ale nie mógł go zrozumieć. Wyjęło z kieszeni kolorowej kamizelki mały worek i pomachało nim w powietrzu.
+
+- Nie rozumiem, co mówisz - westchnął. - Znam biegle ponad piętnaście języków i nie mogę się dogadać. Jak w Indiach w pięćdziesiątym drugim.
+
+- Hej - zawołał ktoś z bardzo ciężkim azjatyckim akcentem.
+
+Kronos odwrócił się, a chłopiec od razu pobiegł do nieznajomego i stanął obok niego. Starzec z siwą brodą, sięgającą prawie do pasa, siedział spokojnie na haftowanej poduszce przyczepionej do niskiego taboretu. Był odziany w ubranie wyglądające na drogie, jedwabne.
+
+- Widzę, że nie jesteś tutejszy - mówił dziwnie, większość słów była po angielsku, ale brakujące wyrazy zastępował japońskimi, tworząc niespotykaną mieszankę.
+
+Kronos rozumiał go, choć sprawiało mu to trudności.
+
+- Przybywam z daleka - powiedział, zastanawiając się, czy powinien używać zwrotów grzecznościowych. - Nie wyglądasz mi na wędrowca - stwierdził starzec. - Zechcesz ze mną usiąść i napić się herbaty?
+
+- Z chęcią - odparł Kronos. - I tak nie mam nic lepszego do roboty - dodał w duchu.
+
+Mężczyzna zaklaskał, a chłopiec zniknął na chwilę za wozem kupieckim i przyniósł drewniany ceber pełen wody oraz blaszaną misę.
+
+- Nie ma nic bardziej uciążliwego na szlaku niż brak higieny - powiedział ciepłym głosem.
+
+- Dziękuję - odpowiedział Łowca, zdejmując płaszcz tak, aby jak najmniej wścibskich oczu zobaczyło, jak zawija w niego broń. Niestety, starzec dostrzegł wszystko.
+
+- Nazywam się Kenzu Marrow z Intal. Jestem obwoźnym kupcem.
+
+- Kronos z Krety, wędrowny najemnik - przedstawił się, obmywając twarz. To była jedyna rzecz, jaka przyszła mu do głowy, która nie odbiegała daleko od rzeczywistości.
+
+Kupiec wytrzeszczył oczy.
+
+- Z Krety? To bardzo daleko stąd. - Zdziwił się. - Jak się tu znalazłeś? Zdezerterowałeś z jakiejś jednostki królewskich zwiadowców?
+
+- Nigdy nie służyłem w armii - usiadł na podstawionym mu przez małego pomocnika taborecie. - Ochraniałem karawanę transportującą towary z dalekiego wschodu - kłamał, starając się brzmieć jak najbardziej naturalnie.
+
+- Ciekawe, podróżowaliście Orzechowym Szlakiem? - dopytywał zaciekawiony.
+
+- Nie pamiętam. Geografia nie jest moją mocną stroną, ale chyba tak to nazywali. Niemniej jednak słabo płacili i zrezygnowałem.
+
+Chłopiec przytaszczył coś, co wyglądało jak samowar i zaczął napychać jedną z komór szyszkami.
+
+- Musieli naprawdę źle płacić, jeśli zrezygnowałeś w takim miejscu - starzec dawał mu do zrozumienia, że nie bardzo mu wierzy.
+
+- Obiecali mi dziesięć uncji złota za eskortę, tymczasem właściciel karawany przegrał wszystko w karty jeszcze przed wyruszeniem z Intal. Dowiedzieliśmy się o tym po czasie i większość z nas zrezygnowała. Rozeszliśmy się w okolicach Tan'daless. Ja pokierowałem się na północ, a moi towarzysze na południe, w stronę domu - mówił.
+
+- Przykro mi to słyszeć. Co cię skłoniło, aby przyjść tutaj? Twoi towarzysze zapewne już docierają do fortu Strong - Kenzu zmienił ton na bardziej przyjazny i zatroskany.
+
+- To, co zwykle. Przygoda - odpowiedział krótko.
