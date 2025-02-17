@@ -640,12 +640,88 @@ Kupiec wytrzeszczył oczy.
 
 - Nie pamiętam. Geografia nie jest moją mocną stroną, ale chyba tak to nazywali. Niemniej jednak słabo płacili i zrezygnowałem.
 
-Chłopiec przytaszczył coś, co wyglądało jak samowar i zaczął napychać jedną z komór szyszkami.
+Chłopiec przyniósł coś, co wyglądało jak samowar, i zaczął napychać jedną z komór szyszkami.
 
-- Musieli naprawdę źle płacić, jeśli zrezygnowałeś w takim miejscu - starzec dawał mu do zrozumienia, że nie bardzo mu wierzy.
+— Musieli naprawdę źle płacić, skoro zrezygnowałeś z takiej pracy — starzec dawał mu do zrozumienia, że nie do końca mu wierzy.
 
-- Obiecali mi dziesięć uncji złota za eskortę, tymczasem właściciel karawany przegrał wszystko w karty jeszcze przed wyruszeniem z Intal. Dowiedzieliśmy się o tym po czasie i większość z nas zrezygnowała. Rozeszliśmy się w okolicach Tan'daless. Ja pokierowałem się na północ, a moi towarzysze na południe, w stronę domu - mówił.
+— Obiecali mi dziesięć uncji złota za eskortę. Tymczasem właściciel karawany przegrał wszystko w karty jeszcze przed wyruszeniem z Intal. Dowiedzieliśmy się o tym po czasie i większość z nas zrezygnowała. Rozeszliśmy się w okolicach Tan'daless. Ja skierowałem się na północ, a moi towarzysze na południe, w stronę domu — opowiadał.
 
-- Przykro mi to słyszeć. Co cię skłoniło, aby przyjść tutaj? Twoi towarzysze zapewne już docierają do fortu Strong - Kenzu zmienił ton na bardziej przyjazny i zatroskany.
+— Przykro mi to słyszeć. Co cię skłoniło, aby przyjść tutaj? Twoi towarzysze zapewne już docierają do fortu Strong — Kenzu zmienił ton na bardziej przyjazny i zatroskany.
 
-- To, co zwykle. Przygoda - odpowiedział krótko.
+— To, co zwykle. Przygoda — odpowiedział krótko.
+
+Handlarz uśmiechnął się.
+
+— Jeśli mogę spytać, jak ta przygoda się nazywa?
+
+Kronos dobrze wiedział, dokąd to zmierza, i postanowił nie wychodzić z roli.
+
+— Iris — odrzekł.
+
+Starzec się zaśmiał i sięgnął do kosza stojącego nieopodal po dwa kamionkowe kubki.
+
+— Niech się wam wiedzie.
+
+Nasypał z woreczka zawieszonego pod brodą garść herbaty do obu naczyń i postawił je obok samowaru, w którym woda powoli zaczynała dochodzić do wrzenia.
+
+— Nie zaparzasz esencji? — spytał nieco zaciekawiony, a trochę chcąc zmienić temat.
+
+— Czego? — zdziwił się.
+
+— Tam, skąd pochodzę, na samowarze kładzie się mały czajnik i w nim zaparza mocną herbatę zwaną esencją. Tę esencję dolewa się do kubków i rozcieńcza wrzątkiem.
+
+Kenzu spojrzał na niego jak na ignorant.
+
+— Samowar? Esencja? Zdecydowanie niewiele wiesz o piciu herbaty. Gdzie ty się takich słów nauczyłeś? — mówił, jakby zaraz miał mu wstawić uwagę do szkolnego dziennika.
+
+— A jednak mimo wszystko jest wiele różnic kulturowych — powiedział do siebie w myślach.
+
+Siedzieli w milczeniu kilka, może kilkanaście minut, nim napar był gotowy do wypicia. Gdy Kronos wziął pierwszy łyk, poczuł coś niespodziewanego. Lekki słodkawy posmak przemieniający się po chwili w gorycz. Nie potrzebował chipu w głowie, aby odgadnąć, co pije. Kenzu podał mu herbatę przyprawioną pyłkiem pewnego kwiatu stworzonego w laboratoriach Azymutu w latach trzydziestych dwudziestego pierwszego wieku. Choć sama roślina była oznaczana tylko numerem, jej pyłek zwano śmiercionośnym złotem, smoczą siarką albo proszkiem szakala. Była to silna toksyna, której niewielkie ilości powodowały wylew krwi do mózgu u mutantów. Ludzie i obiekty były na nią odporni do pewnego stopnia. Kenzu go sprawdzał. Przy tej dawce przeciętny mutant jego gabarytów umarłby w ciągu dwudziestu czterech godzin. Chłopiec, który mu usługiwał, pożegnałby się z życiem w maksymalnie dwie godziny.
+
+— Pyszna herbata — powiedział.
+
+Pierwszym objawem zatrucia pyłkiem był ból głowy, następnie nudności i gorączka. Łowca zastanawiał się, dlaczego miałby zostać otruty i co Kenzu miałby na tym zyskać.
+
+— To moja specjalność — mówił Kenzu, pociągając mały łyk.
+
+— Ciekawe, czy sam to wszystko wypijesz — pomyślał Kronos. — Nigdy nie piłem czegoś takiego. To coś z tej okolicy, czy raczej z południa? — zapytał na głos, kłamiąc także w tej sprawie, bo pyłek znał bardzo dobrze i nie raz z niego korzystał.
+
+Handlarz wyciągnął z kieszeni misternie zdobiony zegarek. Spojrzał na godzinę i udawał, że bierze kolejny łyk.
+
+— Skubany czeka na pierwszy objaw — zaśmiał się w duchu. — Ludzka natura mimo upływu lat pozostaje taka sama.
+
+Starzec odłożył kubek.
+
+— To intalski specjał, aż dziwne, że nie miałeś z nim wcześniej do czynienia — mówił powoli. — To herbata z moich rodzinnych stron. Moi przodkowie przez setki lat wypracowali najlepsze metody hodowli, zbierania i suszenia liści. Jeśli będziesz miał okazję być w królewskim porcie, pytaj o herbatę Marrow.
+
+— Na pewno tak zrobię — wziął kolejny łyk, a napar zaczął mu naprawdę smakować.
+
+— Nie myślałeś może o powrocie w rodzinne strony? — spytał trochę zbyt szybko, toksyna nie powinna jeszcze zacząć działać.
+
+— W sumie to nie — odpowiedział tonem pełnym namysłu. — Planowałem się trochę odkuć i nie wracać z pustymi rękami.
+
+— Może uda nam się w tej sprawie dogadać — Kenzu pochylił się i zaczął mówić ciszej. — Rozejrzyj się wokół. Wszędzie te piekielne wynaturzenia. Mój były ochroniarz umarł na jakąś zarazę tydzień temu, i zostałem tutaj uwięziony.
+
+— Nie wyglądasz mi na więźnia — pochylił się Kronos.
+
+— Spójrz — wskazał na mutanta przypominającego nieco wilkołaka z dwoma kolcami wyrastającymi z jego przedramion, który rozglądał się czujnie. — Oni tylko czekają na mój pierwszy błąd. Muszę stąd uciec, ale nie przeżyję podróży do fortu Strong w pojedynkę. Rozumiesz? — starzec wyraźnie się bał.
+
+Kronos szybko dostrzegł okazję.
+
+— Ile proponujesz? — spytał.
+
+— Pół uncji złota. To całkiem blisko, tydzień marszu. To bardzo dobra zapłata — w jego głosie czuć było desperację. Otworzył sakiewkę schowaną za pasem i pokazał, że ma pieniądze.
+
+— Cała uncja plus drobna zaliczka w srebrze i zaczynam od zaraz — uśmiechnął się Kronos.
+
+Starzec przeklął.
+
+— Jesteś łajdakiem — powiedział, wyciągając garść brudnych, pokrytych patyną monet i przekazując je jakby podawał paczkę narkotyków.
+
+— Wiem — zaśmiał się Kronos.
+
+Łowca dopił resztę herbaty. Wyciągnął broń zawiniętą w płaszcz i stanął z boku wozu, jakby pełnił honorową wartę.
+
+— Jestem prawie pewien, że byłeś kiedyś żołnierzem — rzekł starzec, wylewając resztę swojego naparu na ziemię.
+
+— Może w poprzednim życiu — podsumował Kronos.
