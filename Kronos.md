@@ -722,6 +722,85 @@ Starzec przeklął.
 
 Łowca dopił resztę herbaty. Wyciągnął broń zawiniętą w płaszcz i stanął z boku wozu, jakby pełnił honorową wartę.
 
-— Jestem prawie pewien, że byłeś kiedyś żołnierzem — rzekł starzec, wylewając resztę swojego naparu na ziemię.
+— Jestem prawie pewien, że byłeś kiedyś żołnierzem — rzekł starzec, wylewając resztę swojego naparu na ziemię. - Ale bardzo cię proszę nie paraduj z tą dziwną pukawką. Odstraszasz klientów. 
 
-— Może w poprzednim życiu — podsumował Kronos.
+
+Następne kilka dni Kronos spędził na czytaniu książek. Najpierw nauczył się czytać po intalsku z jednego z elementarzy, które znalazł w podręcznej biblioteczce Kenzu. Nie było to dla niego wielkim wyczynem. Dzięki komputerowi w głowie bez problemu mógł przyswajać ogromne ilości nowych informacji. Kiedy poczuł się już pewniej, przystąpił do lektury "Sagi o Czarnym Rycerzu", intalskiego arcydzieła, którym wszyscy z jakiegoś powodu się zachwycali. Jak sugerowała numeracja, Kenzu posiadał pięć tomów z kilkudziesięciu wydanych w tej serii, ale starzec mówił, że oryginał składa się z ponad dwustu tomów przechowywanych w królewskiej bibliotece uniwersyteckiej. Nie było to wybitne dzieło, ale zawierało wiele opisów samego królestwa oraz miasta noszącego tę samą nazwę. Konstrukcją przypominało bardziej pamiętnik lub coś podobnego. Z pewnością nie była to typowa historia rycerza i jego towarzyszy walczących z pradawnym złem. To, co zaciekawiło Kronosa, to opis potyczki rycerzy z goblinami w bliżej niesprecyzowanych podziemiach lub lochach pradawnej fortecy. Samo ułożenie korytarzy, pokoi i komnat przypominało mu korporacyjne schrony, od których roiło się w okolicy.
+
+– Co porabiasz? – spytała Iris, wchodząc w przestrzeń pomiędzy kupieckim wozem a stajnią, w której przesiadywał większość czasu.
+
+Odłożył kieszonkowy słownik intalsko-północny do skrzyni, zatrzaskując przy tym szczelne, wodoodporne wieko.
+
+– Nic szczególnego – mówił lekko znudzony. – Dziś nic się nie dzieje. Wczoraj przynajmniej obiłem mordę jakiemuś pijakowi, który groził nożem mojemu pracodawcy.
+
+– Może wystraszyłeś klientów? – Starała się przybrać zatroskany ton, ale niezbyt jej to wyszło.
+
+– Wątpię. Kenzu nie ma już czym handlować. Jutro albo pojutrze ma się zwijać do Intal – odpowiedział.
+
+– Zdecydowałeś, czy dotrzymasz umowy? Pamiętasz, że próbował cię zabić, prawda? – dopytywała już teraz bardziej na poważnie.
+
+– Pamiętam. Nadal mu nie ufam, ale... – zebrał myśli. – Jestem ciekaw tego Intal. Kultury tych ludzi. Co potrafią, jak wygląda ich sztuka, towary... – wymieniał marzycielsko. – Zwłaszcza że Fort Strong wcale nie jest tak daleko.
+
+Kobieta przysunęła się bliżej do mężczyzny i oparła o wóz.
+
+– Nie mów, że dałeś się nabrać na tę propagandę. – Wskazała na kufer pełen książek. – Intal wcale nie jest takie piękne, jak je malują, a Fort Strong nie jest fortem bez powodu. To bastion i baza wypadowa ich zbójeckich band. Nie zobaczysz tam nic poza murami obronnymi, lasem namiotów i setkami barek towarowych. Jeśli w drodze powrotnej złapią nas Intalcy zwiadowcy, możemy się nie wypłacić. W najlepszym wypadku nas aresztują. Walka z nimi też nie wchodzi w grę. W przeciwieństwie do mieszkańców północy mają broń palną i są dobrze zorganizowani. – Jej oczy jarzyły się jednocześnie gniewem i strachem. – Jeśli ci zależy, możemy porzucić tego starca dzień drogi od osady. Ruszymy swoją drogą i nikt nawet nie dowie się o tej sytuacji.
+
+– Dobrze, tak zrobimy. – Nie miał zamiaru się z nią kłócić. Wiedziała więcej od niego i nie zamierzał tego podważać.
+
+– Myślałam, że dłużej mi to zajmie. Percy była bardzo uparta. – Zdziwiła się.
+
+– Mimo wszystko były... są między nami pewne różnice – dopowiedział.
+
+Iris spojrzała na dziwną aparaturę wykonaną z kilku mis i bawełnianej szmaty.
+
+– Co to jest? – zmieniła temat. – Warzysz jakieś magiczne eliksiry?
+
+Kronos prawie się roześmiał. Nie spodziewał się takiego pytania.
+
+– Nie. To jest filtr. Woda ze studni pachnie trochę jak szambo, więc postanowiłem coś z tym zrobić – wyjaśnił.
+
+Pochyliła się nad prowizoryczną konstrukcją.
+
+– Wiesz, że jesteś odporny na wszystko, co może się znajdować w tej wodzie? – spytała zaskoczona. – Nasze organizmy są bardzo odporne.
+
+– Wiem o tym. Zdążyło mi się walczyć przy otwartej komorze reaktora – mówił niewzruszony. – Jednak lubię pić czystą wodę.
+
+– Woda jest dla zwierząt. My pijemy piwo. – Spojrzała na niego, potem jeszcze raz na filtr. – Muszę przyznać, pomysłowości ci nie brakuje. Znasz się na eliksirach? To znaczy na wywarach albo innych wyciągach?
+
+– Umiem zaparzyć herbatę. – Uśmiechnął się pobłażliwie.
+
+Przewróciła oczami.
+
+– A mleko makowe albo coś w tym rodzaju? Jakiś lek, który mógłby uśmierzyć ból albo zbić gorączkę? – Zaczęła się irytować.
+
+– Trochę się na tym znam. Mam w głowie cały podręcznik o roślinach wyhodowanych w laboratoriach Azymutu. Wiele z tych roślin ma właściwości lecznicze – próbował sobie przypomnieć jedną z takich roślin, ale wszystko, co przychodziło mu do głowy, było trujące dla zwykłych ludzi i mutantów.
+
+– Botanika nie jest moją specjalnością. Razem moglibyśmy tworzyć niezłą parę wędrownych medyków – zabrzmiała szczerze, bez cienia ironii.
+
+Wyjęła z jednej z walających się wszędzie skrzyń małą szklaną fiolkę.
+
+– Mogę to pożyczyć? – spytała, nie czekając na odpowiedź.
+
+Przystawiła ją do prawego kła, odwracając się od ulicy. Przybrała pozycję jakby karmiła niemowlę. Po chwili z zęba zaczęły ściekać kropelki czarnej cieczy, zbierając się na dnie. Obiekty 150, oprócz swoich psychicznych zdolności, były też jadowite, co pozwalało im pokonać przeciwnika silniejszego od siebie.
+
+– Po co ci ta trucizna? – spytał zaintrygowany. – Ktoś ci się naprzykrza?
+
+Spuściła truciznę również z lewego kła, zanim odpowiedziała.
+
+– To bardzo dobry lek naturalnego pochodzenia – wyjaśniła, przyglądając się cieczy.
+
+– Jak ostatnio sprawdzałem, kilka kropel jest w stanie zabić dorosłego mężczyznę. Mutanci są na to jeszcze bardziej wrażliwi. Poza tym ma gorzki smak – wstał i rozciągnął się.
+
+– Skąd? Skąd to wiesz? – Patrzyła na niego z niedowierzaniem. – Zgadłeś to, prawda?
+
+– Twój jad zabija dość subtelnie. Ofiara niemal od razu uspokaja się i zasypia. Pomaga to wam bezszelestnie zabijać. Swego czasu elity Azymutu wykorzystywały ten jad do zamachów, przez co musiałem nauczyć się go rozpoznawać – wyjaśnił.
+
+– Ten jad w mniejszych ilościach to również bardzo dobry lek. Rozcieńczam go z wodą i podaję doustnie. W takiej formie substancja nie jest tak groźna jak zaaplikowana bezpośrednio przez ugryzienie. – Uśmiechnęła się, szczerząc czarne od cieczy zęby.
+
+– Na co to stosujesz? – dopytał.
+
+– Głównie jako lek przeciwbólowy. Szybko przynosi efekty, więc też szybko mogę się na nim wzbogacić.
+
+– Interesujące – przyznał z aprobatą. – Nie mogłaś tego zrobić wcześniej? Nie musiałbym zatrudniać się u tego starca – dodał z wyrzutem.
+
+– Takie ilości mogę oddawać tylko raz na tydzień. Przy odpowiedniej diecie trochę częściej, ale na szlaku o nią trudno. Poza tym zawsze muszę mieć trochę zapasu na jakąś ewentualność.
