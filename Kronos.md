@@ -725,11 +725,11 @@ Starzec przeklął.
 — Jestem prawie pewien, że byłeś kiedyś żołnierzem — rzekł starzec, wylewając resztę swojego naparu na ziemię. - Ale bardzo cię proszę nie paraduj z tą dziwną pukawką. Odstraszasz klientów. 
 
 
-Następne kilka dni Kronos spędził na czytaniu książek. Najpierw nauczył się czytać po intalsku z jednego z elementarzy, które znalazł w podręcznej biblioteczce Kenzu. Nie było to dla niego wielkim wyczynem. Dzięki komputerowi w głowie bez problemu mógł przyswajać ogromne ilości nowych informacji. Kiedy poczuł się już pewniej, przystąpił do lektury "Sagi o Czarnym Rycerzu", intalskiego arcydzieła, którym wszyscy z jakiegoś powodu się zachwycali. Jak sugerowała numeracja, Kenzu posiadał pięć tomów z kilkudziesięciu wydanych w tej serii, ale starzec mówił, że oryginał składa się z ponad dwustu tomów przechowywanych w królewskiej bibliotece uniwersyteckiej. Nie było to wybitne dzieło, ale zawierało wiele opisów samego królestwa oraz miasta noszącego tę samą nazwę. Konstrukcją przypominało bardziej pamiętnik lub coś podobnego. Z pewnością nie była to typowa historia rycerza i jego towarzyszy walczących z pradawnym złem. To, co zaciekawiło Kronosa, to opis potyczki rycerzy z goblinami w bliżej niesprecyzowanych podziemiach lub lochach pradawnej fortecy. Samo ułożenie korytarzy, pokoi i komnat przypominało mu korporacyjne schrony, od których roiło się w okolicy.
+Następne kilka dni Kronos spędził na czytaniu książek. Najpierw nauczył się czytać po Intalsku z jednego z elementarzy, które znalazł w podręcznej biblioteczce Kenzu. Nie było to dla niego wielkim wyczynem. Dzięki komputerowi w głowie bez problemu mógł przyswajać ogromne ilości nowych informacji. Kiedy poczuł się już pewniej, przystąpił do lektury "Sagi o Czarnym Rycerzu", Intalskiego arcydzieła, którym wszyscy z jakiegoś powodu się zachwycali. Jak sugerowała numeracja, Kenzu posiadał pięć tomów z kilkudziesięciu wydanych w tej serii, ale starzec mówił, że oryginał składa się z ponad dwustu tomów przechowywanych w królewskiej bibliotece uniwersyteckiej. Nie było to wybitne dzieło, ale zawierało wiele opisów samego królestwa oraz miasta noszącego tę samą nazwę. Konstrukcją przypominało bardziej pamiętnik lub coś podobnego. Z pewnością nie była to typowa historia rycerza i jego towarzyszy walczących z pradawnym złem. To, co zaciekawiło Kronosa, to opis potyczki rycerzy z goblinami w bliżej niesprecyzowanych podziemiach lub lochach pradawnej fortecy. Samo ułożenie korytarzy, pokoi i komnat przypominało mu korporacyjne schrony, od których roiło się w okolicy.
 
 – Co porabiasz? – spytała Iris, wchodząc w przestrzeń pomiędzy kupieckim wozem a stajnią, w której przesiadywał większość czasu.
 
-Odłożył kieszonkowy słownik intalsko-północny do skrzyni, zatrzaskując przy tym szczelne, wodoodporne wieko.
+Odłożył kieszonkowy słownik Intalsko-Północny do skrzyni, zatrzaskując przy tym szczelne, wodoodporne wieko.
 
 – Nic szczególnego – mówił lekko znudzony. – Dziś nic się nie dzieje. Wczoraj przynajmniej obiłem mordę jakiemuś pijakowi, który groził nożem mojemu pracodawcy.
 
@@ -763,7 +763,7 @@ Pochyliła się nad prowizoryczną konstrukcją.
 
 – Wiesz, że jesteś odporny na wszystko, co może się znajdować w tej wodzie? – spytała zaskoczona. – Nasze organizmy są bardzo odporne.
 
-– Wiem o tym. Zdążyło mi się walczyć przy otwartej komorze reaktora – mówił niewzruszony. – Jednak lubię pić czystą wodę.
+– Wiem o tym. Zdażyło mi się walczyć przy otwartej komorze reaktora – mówił niewzruszony. – Jednak lubię pić czystą wodę.
 
 – Woda jest dla zwierząt. My pijemy piwo. – Spojrzała na niego, potem jeszcze raz na filtr. – Muszę przyznać, pomysłowości ci nie brakuje. Znasz się na eliksirach? To znaczy na wywarach albo innych wyciągach?
 
@@ -791,7 +791,7 @@ Spuściła truciznę również z lewego kła, zanim odpowiedziała.
 
 – Jak ostatnio sprawdzałem, kilka kropel jest w stanie zabić dorosłego mężczyznę. Mutanci są na to jeszcze bardziej wrażliwi. Poza tym ma gorzki smak – wstał i rozciągnął się.
 
-– Skąd? Skąd to wiesz? – Patrzyła na niego z niedowierzaniem. – Zgadłeś to, prawda?
+– Skąd? Skąd wiesz jak to smakuje? – Patrzyła na niego z niedowierzaniem. – Zgadłeś to, prawda?
 
 – Twój jad zabija dość subtelnie. Ofiara niemal od razu uspokaja się i zasypia. Pomaga to wam bezszelestnie zabijać. Swego czasu elity Azymutu wykorzystywały ten jad do zamachów, przez co musiałem nauczyć się go rozpoznawać – wyjaśnił.
 
@@ -799,8 +799,117 @@ Spuściła truciznę również z lewego kła, zanim odpowiedziała.
 
 – Na co to stosujesz? – dopytał.
 
-– Głównie jako lek przeciwbólowy. Szybko przynosi efekty, więc też szybko mogę się na nim wzbogacić.
+– Głównie jako lek przeciwbólowy. Działa szybko i skutecznie, więc mogę się dzięki temu łatwo wzbogacić.
 
 – Interesujące – przyznał z aprobatą. – Nie mogłaś tego zrobić wcześniej? Nie musiałbym zatrudniać się u tego starca – dodał z wyrzutem.
 
-– Takie ilości mogę oddawać tylko raz na tydzień. Przy odpowiedniej diecie trochę częściej, ale na szlaku o nią trudno. Poza tym zawsze muszę mieć trochę zapasu na jakąś ewentualność.
+– Takie ilości mogę oddawać tylko raz w tygodniu. Przy odpowiedniej diecie trochę częściej, ale na szlaku o nią trudno. Poza tym zawsze muszę mieć jakiś zapas na wszelki wypadek. – Zatkała fiolkę kawałkiem korka i schowała do torby. – Za dwie godziny widzę się z chorym. Chcesz mi pomóc? – spytała neutralnym tonem.
+
+Kronos uśmiechnął się lekko.
+
+– Wybacz, ale mam tutaj co robić. Może na to nie wygląda, ale cały czas stoję na warcie.
+
+– Twoja strata – powiedziała melodyjnie, kierując się w stronę ulicy.
+
+Łowca sięgnął już po książkę, gdy nagle poczuł znajomy zapach. Serce zabiło mu mocniej, źrenice rozszerzyły się, a umysł przyspieszył, procesując bodźce w takim tempie, że świat wokół niego drastycznie zwolnił. Iris, zauważając jego reakcję, natychmiast do niego podbiegła. Chwyciła go za rękę, by w razie potrzeby móc podtrzymać. Próbowała usadzić go na skrzyni, lecz Kronos ją powstrzymał spokojnym gestem. Potrzebował chwili, aby odzyskać kontrolę nad swoim ciałem. Walczył przez moment, by zapanować nad organizmem; cały proces trwał może piętnaście sekund.
+
+– Już wszystko dobrze – powiedział, ocierając ślinę z brody.
+
+– Co ci jest? Zatrułeś się czymś? – spytała z niepokojem.
+
+– To nic takiego. To coś w rodzaju stresu pourazowego, efekt bycia łowcą. Niektóre mutanty wydzielają specyficzny feromon pod wpływem silnego strachu albo stresu – wyjaśnił spokojnym, opanowanym głosem. – Większość z nas, po kontakcie z nim, wpada w szał bitewny.
+
+Jego ciało nadal lekko drżało, buzując od kortyzolu i endorfin. Nie chciał przyznać tego na głos, ale było to najprzyjemniejsze, najbardziej uzależniające uczucie, jakiego kiedykolwiek doznał. Niczym narkotyk.
+
+– Percy również? – zapytała Iris, delikatnie sadzając go obok siebie.
+
+– Też, ale ona łatwiej to kontroluje.
+
+Iris jęknęła nagle z bólem, chwytając się za głowę. Próbowała odruchowo wniknąć w jego umysł i wyszukać myśli Kronosa, lecz natknęła się jedynie na bolesną reakcję obronną.
+
+– Straciłem częściowo kontrolę nad chipem w mojej głowie – wyjaśnił pospiesznie, widząc jej grymas bólu. – Przepraszam, jeśli zrobiłem ci krzywdę.
+
+Podał dziewczynie kubek z przefiltrowaną wodą.
+
+– Zapomnijmy o całej tej sytuacji – odparła, biorąc kilka łapczywych łyków, i zaczęła delikatnie rozmasowywać sobie skronie. – Po tylu latach samotności zapomniałam już, jak bardzo groźni potraficie być, gdy tracicie kontrolę.
+
+Przez kilka chwil siedzieli obok siebie w milczeniu, uspokajając przyspieszone oddechy i przeciążone emocjami ciała.
+
+– Nadal czujesz ten feromon? – spytała po chwili głosem już spokojnym, pozbawionym bólu.
+
+– Tak, co gorsza, zaczął się nasilać – powiedział, nabierając głęboko powietrza, by upewnić się co do swoich przypuszczeń.
+
+– Co to dla nas oznacza? – zapytała, nerwowo zaglądając do swojej torby w poszukiwaniu jakichś medykamentów.
+
+– Obawiam się, że nic dobrego. – Westchnął ciężko. – Najprawdopodobniej ktoś lub coś właśnie przybyło do osady. Jeśli chcemy uniknąć niebezpieczeństwa, musimy wyruszyć jeszcze dziś. – Spojrzał w górę, na niebo zasnute szarymi chmurami. – To będzie bezksiężycowa noc. Żałuję, że nie mam noktowizora.
+
+– Po co ci noktowizor, gdy masz mnie? – Uśmiechnęła się, odzyskując pewność siebie. – Widzę po ciemku równie dobrze jak w dzień.
+
+– Miło mieć was po swojej stronie – powiedział, odwzajemniając uśmiech i wyciągając z kieszeni srebrną monetę. – To wszystko, co mi zostało. Potrzebujemy jedzenia na przynajmniej cztery dni. Nie mogę się stąd ruszyć. Mogę na ciebie liczyć?
+
+– Jesteśmy w tym razem – odparła poważnie, biorąc srebro i chowając je do torby. – Będę na ciebie czekać pod główną bramą tuż po zachodzie słońca.
+
+– Nie spóźnię się – powiedział stanowczo, odprowadzając ją wzrokiem, dopóki nie zniknęła z pola widzenia.
+
+Następne kilka godzin było dość spokojnych. Ilość feromonów w powietrzu nie zmieniła się jakoś znacząco. Nie było w ogóle wiatru, więc taki stan mógł trzymać się nawet kilka dni. Drobinki substancji osiadały na wszystkim i jedyne co teraz mogłoby je szybko zneutralizować to nagła i gwałtowna burza. 
+
+Ze swojego ukrycia widział przechodniów załatwiających swoje codzienne sprawunki. Niektórych znał już z widzenia. Kobieta o kłach upodamniających ją do wampira jak codzień o tej porze wymieniła kilka zdań z Kenzu i odeszła z małym zawiniątkiem. Kronos nie był pewien co kupuje i dlaczego robiła to codziennie przez kilka ostatnich dni, ale domyślał się, że robi to dla towarzystwa. 
+
+Strażnik przypominający humanoidalną jaszczurkę oparł okrąglą drewnianą tarczę o studnię i zaczerpnął trochę wody. Krople ściekły po jego łuskach i zamoczyły konopną koszulę. Gdy już miał nabrać więcej zobaczył coś kontem oka, zabrał swój rynsztunek i szybkim krokiem się oddalił. Po chwili od strony bramy przyszły cztery postacie odziane długie płaszcze zrobione z zielono-brązowej gadziej skóry. Ich głowy były przysłonięte gadzimi kapeluszami z wielkim rondem a ich twarze były zarośnięte conajmniej kilkutygodniowymi brodami. Nie był wstanie rozpoznać czy znał tych ludzi. Miał nawet problem z ocenieniem czy są w ogóle ludźmi. Stanęli przy studni, gdzie chwilę stał jaszczur strażnik i zaczęli rozmawiać. 
+
+Dwóch z nich miało conajmniej dwa metry wzrostu. Ciężko było to dokładnie oszacować przez kapelusze na głowach. Pozostali byli znacznie niżsi. Gdyby nie gęsty zarost, Kronos pomyślałby, że są dziećmi. Najniższy miał ledwo ponad metr czterdzieści, drugi coś w okolicach metra pięćdziesiąt. 
+- Dziwne, ten jaszczur wydawał się na bardzo przestraszonego. - Mówił sam do siebie. - Niby nie wydają się dużym zagrożeniem, ale nie znam ich dokładniej liczny. 
+
+Mężczyźni przypominali trochę opis Intalskich zwiadowców, który usłyszał od Kenzu. Byli ubrani na zielono, ale z pod płaszczy nie wystawały im żadne mosiężne zdobienia ani inne wojskowe insygnia. Łowca był bardziej przekonany, że mogą to być jacyś bandyci podobnych do tych, których spotkał w placówce Azymutu. Tłumaczyło to też dlaczego straż osady tak się ich bała. Niemniej jednak patrząc jaki stosunek do mutantów miał pan Marrow, Intalcy zwiadowcy mogli być równie groźni. Kimkolwiek byli, władze osady nie chciały z nimi zadzierać. 
+
+Kronos napił się z kubka i odłożył go ostrożnie na jedną ze skrzyń nie odrywając wzroku od studni. Mężczyźni rozdzielili się, trzech z nich weszło do tawerny, a czwarty, jeden z wysokich poszedł w stronę straganu Kenzu. Łowca podniósł książkę i zaczął udawać, że czyta. Wytężył słuch, gdy panowie dobijali targu, ale nie usłyszał nic zrozumiałego. Nie mówili w znanym mu języku. Mógł to być jakiś uniwersalny język handlowy o którym słyszał od Iris, ale mógł w nim powiedzieć tylko kilka sensownych zdań.
+
+Wiatr zerwał się bez ostrzeżenia zwiastując nagłą zmianę pogody. Kilka ptaków przypominających krzyżówkę kruków z papugami poderwało się do lotu i przeleciało na kryjówką Kronosa.
+
+Od strony rynku zaczęły dochodzić jakieś głosy. Odłożył lekturę i upewnił się, że jego karabin jest na wyciągnięcie ręki. Nie podobał mu się potencjalny plan wydostania się z grodu siłą. Nie było to dla niego niemożliwe, ale brak pełnego rynsztunku w skład którego wchodziła kamizelka kuloodporna, porządny hełm jak i kilkaset sztuk amunicji, znacząco utrudniał sprawę.
+
+Przypadkowe głosy przerodziły się w krzyki oraz odgłosy szarpaniny. Serce łowcy zabiło trochę szybciej. Przestał się kontrolować i pozwolił, aby instynkt przejął nad nim kontrolę. Mieszanka adrenaliny i endorfin zalała jego krwiobieg. Lekko się uśmiechnął. Oparł drewnianą kolbę o ramię. Czekał na dalszy rozwój sytuacji. Człowiek w gadzich skórach rzucił towar od Marrowa na ziemię. Zaczął iść powoli w stronę tawerny. Kilka istot, jakaś rodzina mutantów o zwierzęcych rysach twarzy pośpiesznie oddaliła się od studni zostawiając za sobą wiadro pełne świeżej wody. Kronos zajrzał po cichu do pustej komory nabojowej. Przeklął w myślach. Nie mógł przeładować teraz. Charakterystyczny trzask skierowałby na niego zbyt dużo uwagi. Wystraszony Kenzu przebiegł mu przed lufą szukając schronienia za wozem. Łowca przytknął wskazujący palec lewej ręki do ust, dając mu znać, że ma siedzieć cicho.
+
+Drzwi tawerny prawie wyleciały z zawiasów, gdy jeden z wyższych mężczyzn otworzył nie kopniakiem. Jedna z lichych desek, z których były zbite drzwi odpadła i rozchlapała kałużę na wszystkie strony. Skórzany płaszcz załopotał gdy robił zamach. Z ciemnego pomieszczenia niczym z procy wyleciała Iris. Zaryła twarzą w błocie. Bandzior nie pozwolił jej się podnieść. Wskoczył na nią i zaczął ją podtapiać wciskając w kałużę. Czas zwolnił. Kronos szarpnął za rączkę przeładowania umieszczoną pod chwytem transportowym. Wycelował w powietrze. Facet w skórach, który robił jeszcze chwilę temu zakupy zareagował niemal od razu. Jego płaszcz uniósł się, gdy dobywał broni. Nadal był odwrócony plecami do łowcy. Kronos wypalił w powietrze wybiegając z kryjówki. Ostro skręcił w prawo wybiegając na środek uliczki. Z pod gadziego płaszcza wydobyła się chmura ciemnego dymu. Widział jak ołowiana kula przebija materiał i mija go o kilka cali trafiając z wóz handlarza. Dusiciel zaczął odrywać wzrok od Iris, a jego uścisk zelżał. Kronos wycelował tuż nad głową rewolwerowca i kolejnym strzałem zdmuchnął mu kapelusz. Stanął pewniej. Wycelował w głowę. Eter rozerwał psychiczny pisk kobiety. Był znacznie mocniejszy niż poprzedni. To była jej desperacka obrana. Walczył z obiektami 150 nie raz. To był agonalny pisk. Ból przeszył jego ciało niczym wstrząs elektryczny. Dwaj niżsi bandyci upadli na progu tawerny lądując w błocie. Psychinczny impuls tej mocy z tak bliska mógł być śmiertelny. Facet klęczący na Iris wpatrywał się w Kronosa niemal nie wzruszony. Jego ręka zatrzymała się na pasku kabury blokującym rewolwer przed przypadkowym wypadnięciem. Jego drugi towarzysz również stał niewzruszony. Utkwił wzrok na lufie karabinu Kronosa z rewolwerem zwisającym w dół uda. 
+
+- Puście ją, a pozwolę wam żyć. - Powiedział po Intalsku. - Normalnie dodałby jeszcze kilka przekleństw, ale jeszcze ich nie znał. 
+
+Iris uniosła się na rękach desperacko walcząc o oddech. Z pod grubej warstwy błota wystawały jedynie usta i przerażone oczy. 
+
+- Wstawaj! - Wydarł się do drugiego robiąc powolny krok w stronę rewolwerowca. - Ty, rzuć broń. Ręce tak żebym je widział. 
+
+Sytuacja była bardzo napięta. Bandyci nie chcieli się poddać. Czekali na najlepszy moment do ataku. 
+
+- Grają na zwłokę. Zaraz zrobi się tutaj gorąco. - Pomyślał. - Rzuć to! - Krzyknął po raz kolejny... Kurwa, jełopy mnie nie rozumieją. - Dodał po Grecku sam do siebie, ale na tyle głośno, że reszta też to usłyszała. 
+
+Już miał naciskać za spust gdy mężczyzna, którego czaszka miała za moment zostać przewiercona na wylot, odpowiedział również po Grecku.
+- Kronos, nie strzelaj. 
+
+Słowa uderzyły w niego jak młot do wywarzania drzwi. Rozpoznał głos starego przyjaciela. 
+- Nik? - Spytał z niedowierzaniem opuszczając broń. 
+
+Drugi bandzior zszedł z Iris i powoli podchodził w jego stronę. 
+- Ja pierdole, ty żyjesz. - Odezwał się po Angielsku z wyczuwalnym słowiańskim akcentem. 
+- Cypher? Nie poznałem was panowie. Zarośliście. - Skomentował z rozluźnieniem. 
+
+Iris w tle zaczęła podnosić się z ziemi, ale od ilości adrenaliny ledwo potrafiła utrzymać się kuckach. 
+
+- Wieliśmy ciebie za iluzję. - Powiedział Nik chowając rewolwer i ściskając przyjaciela. - Nie wierzę, że to na prawdę ty. 
+
+Kronos odepchnął go. 
+
+- Jebiesz gorzej niż najbardziej zafajdane klatki mutantów. - Mówił szczerze. 
+
+Iris wreszcie stanęła na równe nogi. 
+- Może zapoznasz mnie ze swoimi przyjaciółki. - Powiedziała ocierając brudną twarz. 
+- Nik, lider Rozjemów i Cypher, taki jeden mało znany członek Żniwiarzy. Łowcy azymutu.
+- Pierdol się. - Zaśmiał się Cypher jeszcze nie dowierzając, że widzi lidera Odyseusza z krwi i kości. 
+- Byli łowcy azymutu. - Dopowiedział Nik wyciągając z torby lnianą szmatkę i podając ją kobiecie. - Przepraszam za ten nagły atak. Nie wiedziałem... jakby to powiedzieć..., że jesteś cywilizowana. 
+
+Iris cała się trzęsła. Psychiczny pisk spalił jej prawie cały cukier z krwi. Wyrwała mu kawałek materiału i cisnęła w błoto. 
+- Nie chcę twojej pomocy morderco. Nie jesteśmy przyjaciółmi. - Wysyczała. 
+
+Nik nie zareagował. 
+- Kontynuując. - Mówił dalej. - Azymut rozwiązał łowców kilka tygodni po twojej śmierci. 
+- Spodziewałem się, że to się kiedyś stanie. - Westchnął Kronos. - Kto z nas jeszcze żyje? 
+- Jak na razie tylko my trzej. - Powiedział krótko Cypher. 
