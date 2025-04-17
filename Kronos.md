@@ -955,11 +955,91 @@ Spojrzał jej prosto w oczy. Łzy torowały sobie drogę po jej brudnej twarzy, 
 
 – Uciekając, niczego nie osiągniesz... Tylko razem jesteśmy w stanie cokolwiek zdziałać.
 
+Kilka godzin później siedzieli przy ognisku rozpalonym kilka kilometrów od osady. Iris znała bardzo dogodne miejsce blisko strumienia, w którym mogli się wykąpać i znowu poczuć jak cywilizowani ludzie. Wcześniej pochowali dwóch zmarłych w płytkich grobach wykopanych nieopodal głównego szlaku handlowego. Bez żadnych ceremonii, z typową dla łowców obojętnością. Doświadczyli w swoich życiach tyle przemocy, że był to dla nich po prostu kolejny dzień. 
 
-Kilka godzin później siedzieli przy ognisku rozpalonym kilka kilometrów od osady. Pochowali dwóch zmarłych w płytkich grobach wykopanych nieopodal głównego szlaku handlowego. Bez żadnych ceremonii, z typową dla łowców obojętnością. Doświadczyli w swoich życiach tyle przemocy, że był to dla nich po prostu kolejny dzień. Całą sytuację najbardziej przeżywała Iris. W porównaniu do innych obiektów 150 była bardzo emocjonalna. Kronos nie był pewien, ale to mogła być cecha, która pozwoliła postać przy zmysłach. 
+Całą sytuację najbardziej przeżywała Iris. W porównaniu do innych obiektów 150 była bardzo emocjonalna. Kronos nie był pewien, ale to mogła być cecha, która pozwoliła jej pozostać przy zmysłach. Grupa Nika i Cyphera została zaatakowana przed kilkoma dniami przez siostry Iris. W głównym starciu zwiadowcy stracili siedemnastu ludzi. Następnie, uciekając przed leśnymi wiedźmami, stracili jeszcze trzech. Tłumaczyło to, dlaczego bez zawahania zaatakowali Iris w tawernie. Chociaż według mężczyzny, Cypher mimo wszystko powinien się upewnić, czy zagrożenie jest na tyle poważne, aby walczyć bez wstępnego planu. To nie było do niego podobne. Szarżowanie na ślepo było raczej domeną drużyny Odyna, nie Żniwiarzy.
 
-Grupa Nika i Cyphera została zatakowana przed kilku dniami przez siostry Iris. W głównym starciu zwiadowcy tracili siedemnastu ludzi. Następnie uciekając przed leśnymi wiedźmami, stracili jeszcze trzech. Tłumaczyło to dlaczego bez zawahania zaatakowali Iris w Tawernie. 
+Z samego grodu uciekli, nim ktokolwiek zdążył się zorientować, co tak naprawdę się stało. Cypher w drodze do strumienia opowiadał, że mieli na pieńku z mieszkańcami Tan'daless. Głównie przez to, że wódz osady był jednocześnie hersztem miejscowej bandy rozbójników współpracujących z Intalczykami. Gdyby nie ciężka sytuacja, w jakiej się znaleźli, nigdy by się tam nie zatrzymali. Herszt, wyczuwając słabość zwiadowców, mógł ich zaatakować, jeszcze bardziej komplikując sytuację.
 
-Z samego grodu uciekli nim ktokolwiek zdążył się zorjenotwać co tak na prawdę się stało. Cypher w drodze do strumienia opowiadał, że mieli na pięku z mieszkańcami Tan'daless. Głównie przez to, że wódz osady był jednocześnie hersztem miejscowej bandy rozbujników współpracujących z Intalczykami. Gdyby nie ciężka sytuacja w jakiej się znaleźli, nigdy by się tam nie zatrzymali. Herszt wyczuwając słabość zwiadoców mógł bez zaatakować komplikując sytuację. 
+— To sfermentowany sok z drzewa Azimuth Betula — Cypher podał Iris skórzany bukłak.
 
-- To sfermentowany sok ze specjalnego gatunku brzozy. - Cypher podał Iris skórzany bukłak. 
+Kobieta wzięła go do ręki i zaciągnęła się głęboko, podkładając go sobie pod nos.
+
+— Pachnie jak sok z brzozy — powiedziała z lekką nieufnością.
+
+— Bo to właśnie to — westchnął Kronos, rozgrzebując żarzące się węgle. — Azimuth Betula to zwykła brzoza. Nie licząc oczywiście trochę większych, łykowatych liści.
+
+— Dziękuję ci za ten wykład — rzekł Nik, dorzucając do ognia i rozsypując wieżę płonącego drewna, nad którą Kronos spędził dobre dziesięć minut. — Iris — zaczął trochę nieśmiało. — Jak to się w sumie stało, że wpadłaś na Kronosa?
+
+Kobieta podała bukłak dalej i wróciła do suszenia włosów kawałkiem materiału, który służył jej za ręcznik. Kronos skosztował napitku, ale mu nie zasmakował. Podał go dalej Nikowi.
+
+— To krótka historia. Byłam w okolicy. Zobaczyłam śmigłowiec na niebie. Poszłam w jego stronę. Tyle i aż tyle — zrobiła zaskoczoną minę, jakby było to dla wszystkich coś oczywistego.
+
+— Śmigłowiec? — zdziwił się Cypher i spojrzał na drugiego zwiadowcę. — Nie było nas niecały rok, a oni z epoki kamienia łupanego przeszli w czasy zimnej wojny?
+
+— Jesteśmy ubrani w skóry, a Kronos ma na sobie mundur. Mamy kilka czarnoprochowych rewolwerów, które ukradliśmy Intalczykom, Kronos ma prymitywny, bo prymitywny, ale karabin szturmowy — mówił Nik. — To nie jest takie odrealnione, patrząc na to, że Azymut był dobrze przygotowany na ten moment.
+
+— Fakt. Trochę nie może to nadal do mnie dojść — westchnął, odbierając bukłak i dopijając resztkę.
+
+Kronos zabrał głos zanim ktokolwiek mu przeszkodził. To pytanie chodziło mu po głowie już od jakiegoś czasu.
+
+- Co się wydarzyło od mojej śmierci do teraz?
+- Jak dokładnie mam to opisać? - Dopytał Nik z uśmiechem.
+- Tak z waszej perspektywy.
+- No dobrze. Nie wspominam tego najlepiej. - Zaczął smutno.
+- Domyślam się. - Kronos wszedł mu w słowo.
+- Wasze szczątki zostały zebrane przez Jegrów i przetransportowane do laboratorium na półwyspie Iberyjskim. Spodziewaliśmy się, że za kilka tygodni wrócicie do żywych. Jak zwykle w takich sytuacjach. Po miesiącu zaczęło to wydawać się dość dziwne, że nie dajecie żadnego znaku życia, ale po tym jak zniknęliście na ponad pół roku... Myśleliśmy, że wróciliście do czegokolwiek tam wcześniej robiliście. - Utkwił wzrok na chwilę w ogniu nim zaczął mówić dalej. - Dostaliśmy wezwanie. Wezwanie takie jak dawniej. - Ożywił się trochę. - Placówkę pod Uralem opanowały mutanty. Klasyczny scenariusz pękniętej kłódki. Byliśmy już w takiej sytuacji setki, jak nie tysiące razy. Cztery drużyny łowców, Wikingowie, Jegrzy, Rozjemcy i Żniwiarze... Jak za dawnych czasów, gdy świat był jeszcze normalny. - Gdyby Kronos nie znał Nika pomyślałby, że ten zaraz się rozpłacze. - Zapakowaliśmy się do czterech wahadłowców i dotarliśmy na miejsce prawie w tym samym momencie. Weszliśmy do środka. Pierwszy poziom poszedł gładko. Średni opór, zero strat. Niżej było już trudniej. Piętra biurowe zostały przekształcone w mieszkalne. Pełne zakamarków i bardzo zagracone. Odyn stracił kilku ludzi, bo nie przeszukali dokładnie jednej ze stert pudeł blokującej nam trochę. Nie pamiętam, kto tam zginął. Z Cyperem siedziałem w pokoju kontrolnym na środkowym piętrze pierwszego poziomu. Próbowaliśmy przywrócić do działania monitoring i systemy obronne placówki. - Zagryzł kawałkiem suszonego mięsa wyjętym z plecaka. - Spędziliśmy kilka godzin na uruchamianiu wind. Kiedy to koniec końców się nie udało, postanowiliśmy przeciąć się przez zatrzaśnięte na amen drzwi od głównej klatki schodowej.
+- Nie mogliście ich jakoś inaczej otworzyć niż palnikiem plazmowym? - Spytał Łowca.
+- Ładunki wybuchowe w zatrzaskach zostały zdetonowane na długo zanim zeszliśmy pod ziemię. - Wyjaśnił Cypher. - Dlatego między innymi tak długo męczyliśmy się z windą.
+- Drzwi, których nie dało się zamknąć były naszym największym błędem. - Smutno kontynuował Nik. - Pierwsi weszli Wikingowie. Straciliśmy z nimi łączność dość szybko. Niższe piętra nie miały kompletnie zasilania, więc transmitery też nie działały. Podręcznikowa sytuacja. Jegrzy mieli czekać piętnaście minut i ruszyć za Wikingami. Po czterech, może pięciu minutach od zniknięcia Wikingów w ciemnościach, z dołu zaczęły dobiegać odgłosy kanonady. Ale nie takiej normalnej. - Znowu się ożywił. - Odyn i reszta strzelali ze wszystkiego, co mieli. Trzy minuty później wszystko ucichło. Meszko przejął dowodzenie i zarządził obronę korytarza. To, co było dalej, to już tylko moje domysły. Nadal myślałem na pierwszym poziomie. Wysłałem pięciu moich ludzi, aby wspomogli resztę. Kurwa... - Zaniemówił. - Czy ty słyszałeś, by łowca krzyczał ze strachu? - Spytał nie ukrywając emocji. - Każdy z nas przeżył sporo. Widzieliśmy chyba wszystko. A jednak. Azymut po raz kolejny nas zaskoczył. Klatki schodowej chroniło osiemdziesięciu ośmiu łowców. Nie osiemdziesięciu ośmiu najemników, ochroniarzy czy innych obiektów 258. Łowców! - Krzyknął. - Elitarnych wojowników wyspecjalizowanych do zwalczania mutantów i walki w podziemnych kompleksach... Cokolwiek wyszło z ciemności wyrżnęło wszystkich... Nikt... Nikt poza nami tego nie przeżył. Nie jestem z tego dumny, ale uciekliśmy.
+
+Cypher kontynuował:
+- Walka nie miała sensu. Uciekliśmy tajnym tunelem ewakuacyjnym, dbając o to, aby zatrzasnąć za sobą każde przejście. Po wyjściu na powierzchnię nie nadaliśmy żadnego komunikatu. Wyłączyliśmy wszelkie nadajniki i udaliśmy się pieszo na zachód. Mieliśmy szczęście, że to było bardzo ciepłe lato. Do pierwszych opadów śniegu udało nam się przekroczyć Dniepr. Zaszyliśmy się w jednym z nowych schronów Azymutu, wybudowanym po siedemdziesiątym piątym roku. Jak tak teraz na to patrzę, możliwe, że ta z pozoru nieistotna decyzja uratowała nam po raz kolejny życie.
+
+Nik zdążył się już opanować i mógł dalej opowiadać.
+- Na miejscu przybraliśmy tożsamości dwóch techników, o których wiedzieliśmy, że na pewno nie żyją, a w rekordach Azymutu widnieli jako zaginieni. Odpowiednio spreparowaliśmy bazę danych, aby nasze nagłe pojawienie nie wywołało większego poruszenia. W tym okresie coraz więcej pracowników tej przeklętej korporacji przenosiło swoją jaźń do obiektów 258, więc nagła zmiana wyglądu i postury nikogo nie dziwiła. - Znowu odgryzł kawałek mięsa. - Program łowców został zawieszony do odwołania. Do dziś nie wiem, czy po prostu chcieli nas się pozbyć i dostali do tego stosowną okazję, czy wszystko było zaplanowane. Zima dwa tysiące dziewięćdziesiątego dziewiątego roku. Wszyscy pracownicy Azymutu dostali rozkaz zahibernowania się na bliżej nieokreślony okres. Plotki mówiły coś o stu latach, ale nikt nie był pewien. Azymut wypuścił trzecią falę mutantów, która miała dokończyć dzieła zniszczenia. Czas w uśpieniu miał starczyć na odbudowanie zasobów naturalnych planety i pozwolić na świeży start. Wady genetyczne oraz śmiercionośny wirus miały wykończyć najgroźniejsze bestie, zanim ktokolwiek opuściłby schronienie. Ale... - Napił się wody. - Azymut nie przewidział jednego. Ktoś lub coś się zbuntowało. Wszystkie placówki hibernacyjne, o których wiem, zostały zaatakowane, a personel zabity we śnie.
+- Zakładamy, że jeśli nikt z najwyższej rady Azymutu nie nawiązał z nami jeszcze kontaktu, to znaczy, że albo reszta nie żyje, albo jeszcze mocno śpi. - Rozjaśnił Cypher. - Zakładamy, że los reszty placówek był podobny do tych z regionu. 
+
+Zapadła cisza. Kronos potrzebował chwili na przetrawienie informacji.
+
+- Odwiedziłem jedną z placówek. Rzeczywiście wyglądała, jakby była napadnięta. Wiesz na ten temat coś więcej, Iris? - Spytał. - Jedyna z nas nie przespałaś, albo nie przeleżałaś w grobie tych wszystkich stuleci.
+
+Po mimice twarzy kobiety można było wnioskować, że pytanie niezbyt jej się spodobało.
+
+- Nim wyszłam na powierzchnię, wszystkie laboratoria były już puste. Nie mam pewności co się tak naprawdę stało. - Mówiła dość cicho i niepewnie.
+- Byłaś w innych placówkach? Co widziałaś? - Naciskał Nik. - Może ważniejsze pytanie. Kim ty właściwie jesteś i skąd znasz Kronosa? - Łowca zmienił ton na poważniejszy.
+- Iris to obiekt 150, jak już dobrze wiecie. To moja stara znajoma z czasów już po końcu świata. - Wypowiedział się Kronos.
+- Miałeś wiele kontaktów. - Stwierdził Cypher. Cmoknął głośno. - Ale nikogo, poza innymi łowcami, za którego walczyłbyś tak zawzięcie... Azymut się nie liczy. - Dodał po chwili. - Wykonywaliśmy rozkazy. Bardziej lub mniej po dobroci. To jakieś twoje zwierzątko?
+
+Nik zdzielił swojego towarzysza w potylicę. Na tyle mocno, że Iris aż podskoczyła.
+- Zachowuj się. - Skarcił go.
+- Nie, Iris nie jest moim zwierzątkiem. Jest przyjaciółką Percy, co czyni ją również moją przy...
+- Chciałeś powiedzieć "była". - Wypalił i zatrzymał rękę Nika w locie, nim znowu trafiła go w głowę.
+- Nie chciałem tak powiedzieć. - Kontynuował niewzruszony. - W siedemdziesiątym dziewiątym, w trakcie zbierania kryształowych dysków natrafiliśmy na pewną placówkę, której personel w siedemdziesięciu procentach składał się z mutantów. Było to pierwsze miejsce, w którym zarządca nie traktował nas jak podludzi.
+- Czyli to tam znikaliście na długie miesiące, gdy nie mogliśmy się z wami skontaktować. - Nik pokiwał głową. W głosie było słychać wyraźny wyrzut. - Gdybyś nas o tym poinformował, historia potoczyłaby się inaczej.
+- To nie wina Kronosa. - Zaczęła bronić go Iris. - Elara Voss, zarządca mojej placówki, tak zadecydowała. Działała poza wiedzą Azymutu i bardzo jej zależało, aby zachować dyskrecję.
+
+Nik westchnął.
+- No dobrze. Ma to sens. - Zelżał z tonu.
+- Uznam ten temat za zamknięty. - Odezwał się Cypher. - Iris. - Zwrócił się do kobiety. - Kim jest dla ciebie Kronos? Trzymasz się bardzo blisko niego. Wydaje mi się, że ci ufa. Co jest dość niecodzienne.
+
+Westchnęła.
+- Nikim specjalnym. Z osób, które kiedykolwiek znałam, nie pozostał mi nikt. Takie przekleństwo długiego życia. - Rozłożyła ręce.
+
+Chwilę posiedzieli w ciszy. Słońce zdążyło już zajść za horyzont. Puchacz przeleciał bezszelectwie nad tlącym się ogniskie i zniknął gdzieś w mroku nocy. 
+
+- Co zamierzamy dalej robić? - Odezwał się Cypher grzebiąc w żarze patykiem. -  Nie jesteśmy w najabardziej konfortowej sytuacji. Nie możemy od tak wrócić i powiedzieć kim tak na prawdę jesteśmy. Zabiją nas zanim zdążymy się obejrzeć. 
+- Nie jesteście po tej samej stronie? - Spytała Iris. 
+- To skąplikowane. - Burknął Nik. 
+- Powiedzmy, że nie byliśmy najbardziej lubiani. - Rozwinął Kronos. - Naszą relację z Azymutem można by porównać do symbiozy dwóch organinzów. Jeden zależny od drugiego. 
+- Ale każdy wiedział, że kiedy ta zależność przestanie istnieć, to wcześniej czy później rzucimy się sobie do gardeł. - Dokończył Cypher. 
+- Do tego dochodzi pewna mało wygodna dla nas kwestia. - Kontynuował Kronos. 
+- Mało wygodna? - Spytał ironicznie Nik. - Zarządcy, dyrektorzy, jak zwał tak zwał. Przełożeni placówek mieli w Azymucie dość sporą autonomię dotyczącą tego co tam się działa. Z tego powodu, kobieta o której wcześniej wspominałaś. Jak jej było... 
+- Ela... - Nie zdążyła dokończyć. 
+- Elara Voss. Mogła działać tak jak działała. W Europie nikogo nie dziwiło, że pracownicy Azymutu żyją razem z mutantami i obiektami. Nawet jeżeli cię, że traktowali to i tak czy siak było to lepsze niż życie w klatce i ciągłe eksperymenty. 
+- Azjatyccy naukowcy nie traktowali mutantów lepiej od zwierząt pomimo często ich większej niż ludzka inteligencji. - Przejął pałeczkę Kronos. - Osiemdziesiąt procent naszych interwencji w Azji było spowodowane buntem przetrzymywanych na najniższych poziomach mutantów. Najwyższa rada Azymutu wypracowała najskuteczniejszy standard współpracy z mutantami, ale naukowcy często go ignorowali, aby przyśpieszyć badania. 
+- Zdesperowany mutant, czy obiekt, to najgroźniejszy przeciwnik. - Wtrącił się Nik. - Starcia zawsze były krwawe, a próbny jakiejkolwiek negocjacji nieskuteczne. 
+- Dodatkowo placówki często były ulokowane w mocno zaludnionych miastach. - Mówił Cypher. 
+- Nie zawsze naszym priorytetem było uratowanie personelu. Rada nadzorcza z obaw przed ujawnienia co postaje pod ziemią dała nam wolną rękę. Jeśli był choć cień szansy, że mutanci wydostaną się na powierzchnię, mieliśmy zrobić wszystko, ale to absolutnie wszystko, aby do tego nie doszło. 
+- Azymut, a zwłaszcza personel badawczy stał się w ostatnich latach biznesem rodzinnym. Pracownicy byli nakłaniani do zakładania rodzin między sobą, a ich dzieci były posyłane do korporacyjnych szkół tworzących wyspecjalizowaną kadrę świetnie wyszkolonych specjalistów. - Kronos westchnął. - Kiedy nie było już odwrotu, zatrzasnęliśmy jedyne wyjścia i uszkadzaliśmy reaktor... Z takich akcji mało kto wychodził żywy. 
+- Winę za śmierć bliskich braliśmy na siebie. - Nik spojrzał na Iris. - Zamiary ludzi pchanych zemstą są dość proste do przewidzenia. 
