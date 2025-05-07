@@ -8,7 +8,7 @@
         "type": "tabs",
         "children": [
           {
-            "id": "c7ce440fe8505c7b",
+            "id": "6b69aaa4f60f730a",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -22,34 +22,21 @@
             }
           },
           {
-            "id": "46abf910299f77c9",
+            "id": "6e90e5c2dc6bfeba",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Untitled.md",
+                "file": "Coś innego.md",
                 "mode": "source",
                 "source": true
               },
               "icon": "lucide-file",
-              "title": "Untitled"
-            }
-          },
-          {
-            "id": "6b69aaa4f60f730a",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "System.md",
-                "mode": "source",
-                "source": true
-              },
-              "icon": "lucide-file",
-              "title": "System"
+              "title": "Coś innego"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -122,7 +109,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Kronos.md",
+                "file": "Coś innego.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -132,7 +119,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Kronos"
+              "title": "Backlinks for Coś innego"
             }
           },
           {
@@ -190,17 +177,18 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "c7ce440fe8505c7b",
+  "active": "6e90e5c2dc6bfeba",
   "lastOpenFiles": [
-    "Untitled.md",
-    "System.md",
+    "Kierunek_Intal.md",
     "Kronos.md",
+    "Targ_Intal.md",
+    "Untitled.md",
+    "Coś innego.md",
+    "Untitled",
+    "System.md",
+    "Operacja_Intal.md",
     "test2",
     "test1",
-    "Operacja_Intal.md",
-    "Kierunek_Intal.md",
-    "Targ_Intal.md",
-    "Untitled",
     "README.md",
     "GPT4o mini.md",
     "new.md",

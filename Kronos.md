@@ -39,7 +39,7 @@ Kronos podmienił kod seryjny na BKZ.
 
 - Z drugiej strony, lepiej tak, niż miałbym w lustrze widzieć obcą twarz, jak ostatnio – wymamrotał, czując, że jego głos wrócił do normy, znowu brzmiąc mocno i wyraźnie.
 
-Za grubą szybą komory ktoś się zbliżył, a chwilę później usłyszał metaliczny trzask, gdy zatrzask drzwi został zwolniony. Kronos pchnął je mocno, wyrywając się na zewnątrz. Stanął na ręczniku, chwytając drugi, aby wytrzeć z siebie resztki żółtej cieczy. Jego ciało czuło się obco, mimo że wyglądało znajomo, nawet jeśli brakowało blizn, które kiedyś znacząco wpisały się w jego tożsamość.
+Za grubą szybą komory ktoś się zbliżył, a chwilę później usłyszał metaliczny trzask, gdy zatrzask drzwi został zwolniony. Kronos pchnął je mocno, wyrywając się na zewnątrz. Stanął na ręczniku, chwytając drugi, aby wytrzeć z siebie resztki żółtej cieczy. Jego ciało czuło się obco, mimo że wyglądało znajomo, nawet jeśli brakowało blizn.
 
 Rozejrzał się. Na prawo i lewo od niego, w równym rzędzie, stały inne obiekty 258 – wysokie, wszystkie bez wyjątku mierzyły ponad dwa metry. Coś w tym wzroście było nietypowego. Łowcy zwykle mieścili się w przedziale od metra siedemdziesięciu do dwóch metrów dziesięciu, ich parametry optymalizowane były do walki, a nie do budzenia respektu samą obecnością. Tutaj jednak wzrost zdawał się mieć znaczenie – wszyscy byli imponująco wysocy. Pomieszczenie, klaustrofobiczne i ciemne, z niskim sufitem i ścianami pokrytymi chłodnym metalem, kontrastowało z tym, co pamiętał z laboratoriów Azymutu – tam zawsze panowało jasne, sterylne oświetlenie. Tu brakowało tego bezpieczeństwa, tej surowości, do której był przyzwyczajony.
 
@@ -131,21 +131,21 @@ Przywitał ich mężczyzna odziany w skóry. Też był obiektem 258, ale jego wy
 
 Doktor Oliver spojrzał na Kronosa i potem z powrotem na kobietę w kitlu. 
 - Coś nie tak? - Spytał obierając się o dość młodą brzozę lekko ją uginając. 
-- Tak. - Mówił Potrójne Zero. - Znowu odwaliłeś chałturę. Potrzebuję najlepszych żołnierzy, aby zdobywać dla was zasoby, a wy jak mi się odpłacacie? Prosiłem o to, aby następnie żółnierze byli już wstępnie zaprogramowani, a dostałem kolejnego, który nic nie wie. 
+- Tak. - Mówił Potrójne Zero. - Znowu odwaliłeś chałturę. Potrzebuję najlepszych żołnierzy, aby zdobywać dla was zasoby, a wy jak mi się odpłacacie? Prosiłem o to, aby następni żółnierze byli już wstępnie zaprogramowani, a dostałem kolejnego, który nic nie wie. 
 - Testowałeś go? - Spytał spokojnie. - Testowałeś go pod kontem wszystkich wymagań? 
 Odpowiedziała mu cisza. 
 - Nie możesz wymagać, że każdy obiekt 258 zaprojektowany przeze mnie będzie idealny. To jest niemożliwe. 
 - Co jest z nim nie tak? 
 - Braki w wiedzy ogólniej. - Odpowiedziała kobieta. 
 - Coś poza tym? 
-- By było kluczowe wymaganie... - Mówi Zero
-- Cisza. - Kluczowe, czy nie, to nie koniec świata. Nauczy się tego później. Możesz wrócić do swoich obowiązków i pamiętaj, że chce mieć do sprawozdanie najpóźniej jutro. - Zwrócił się do kobiety. - A teraz Inferno Zero Dwadzieścia Jeden. - Mówił do Kronosa. - Powal swojego dowódcę na ziemię i pokarz, że jesteś czegoś wart. 
+- To było kluczowe wymaganie... - Mówi Zero
+- Cisza. - Kluczowe, czy nie, to nie koniec świata. Nauczy się tego później. Możesz wrócić do swoich obowiązków i pamiętaj, że chce mieć to sprawozdanie najpóźniej jutro. - Zwrócił się do kobiety. - A teraz Inferno Zero Dwadzieścia Jeden. - Mówił do Kronosa. - Powal swojego dowódcę na ziemię i pokarz, że jesteś czegoś wart. 
 
 Kronos skinął mechanicznie głową na znak, że zrozumiał i dosunął się od mężczyzn przyjmując odpowiednią postawę. 
 
 - Oliver, ja cię kiedyś zabije. - Odburknął Zero szykując się do walki. 
 - Jeśli naprawdę odwaliłem taką chałturę to wygrasz w kilka chwil.  - Zaśmiał się doktor i klasnął w dłonie sygnalizując rozpoczęcie pojedynku. 
-Kronos korzystając z biokomputera przyśpieszył swoją jaźń. Wszystko wokół zwolniło kilkukrotnie. Obserwował jak mięśnie jego dowódcy zaczynają się napisać, a je go ciało wystrzeliwuje do przodu. Był w takiej sytuacji tysiące razy, doskonale wiedział co robić. Nie miał co próbować się siłować z przeciwnikiem, byli podobnego wzrostu, więc mieli porównywalną ilość tężyznę fizyczną. Wybrał inną metodę. Zamarkował prawy sierpowy wycelowany z szyję. Poczekał aż Zero zablokuje jego cios a potem szybko zrobił unik podcinając mu nogi. Czas wrócił do normalnego biegu, gdy weteran zarył plecami w leśną ściółkę. 
+Kronos korzystając z biokomputera przyśpieszył swoją jaźń. Wszystko wokół zwolniło kilkukrotnie. Obserwował jak mięśnie jego dowódcy zaczynają się napisać, a je go ciało wystrzeliwuje do przodu. Był w takiej sytuacji tysiące razy, doskonale wiedział co robić. Nie miał co próbować się siłować z przeciwnikiem, byli podobnego wzrostu, więc mieli porównywalną tężyznę fizyczną. Wybrał inną metodę. Zamarkował prawy sierpowy wycelowany w szyję. Poczekał aż Zero zablokuje jego cios a potem szybko zrobił unik podcinając mu nogi. Czas wrócił do normalnego biegu, gdy weteran zarył plecami w leśną ściółkę. 
 
 - To było coś. - Omówił Oliver z jawną aprobatą w głosie. 
 - Dałem mu fory. - Zero wstał z ziemi. -  Nie mogę go zbytnio uszkodzić przed misją. 
@@ -183,7 +183,7 @@ Kronos wykorzystał chwilę i zajrzał w głąb nietypowej jamy.
 - To hangar. - Powiedział sam do siebie. - Stoimy na wrotach. - Rozejrzał się wokół. - Tu nie powinno być ani centymetra ziemi ani tym bardziej drzew. Ile mogło być lat, trzysta, czterysta, więcej? 
 - Dwadzieścia Jeden, schodzisz pierwszy. - Powiedział dowódca z ciężkim do ukrycia uśmieszkiem. 
 
-Łowca skinął głową. Nie miał nic do powiedzenia w tej sytuacji. Upewnił się, że drabina utrzyma jego wagę, przerzucił karabin na plecy i szedł na sam dół. Wylądował po pac w wodzie. Wyjął z plecaka latarkę i upewnił się, że gdzieś w cieniu nie ukrywa się mutant, który mógłby okazać się zagrożeniem dla misji. 
+Łowca skinął głową. Nie miał nic do powiedzenia w tej sytuacji. Upewnił się, że drabina utrzyma jego wagę, przerzucił karabin na plecy i szedł na sam dół. Wylądował po pas w wodzie. Wyjął z plecaka latarkę i upewnił się, że gdzieś w cieniu nie ukrywa się mutant, który mógłby okazać się zagrożeniem dla misji. 
 
 - Czysto. - Krzyknął. 
 
@@ -234,7 +234,7 @@ Siódemka wyciągnął z plecaka tomahawk, ale nie byle jaki tomahawk. Identyczn
 - Jakieś skrzynki. - Powiedziała Piętnaska świecąc latarką przez zrobioną szparę. 
 
 Kronos odwrócił się nie czekając na dalszy rozwój i ruszył w głąb ciemnego korytarza. Chwycił latarkę w lewą ręką i podtrzymywał nią karabin w taki sposób, aby widzieć w co celuje. Czym dalej szedł, tym ilość błota była mniejsza, a przez to ślady mniej wyraźnie. 
-- Brakuje śladów żerowania. - Twierdził patrząc pod nogi. - Spodziewałbym się jakiś szczątków zwierząt czy coś takiego. Teraz pytanie, kto ostatni zamkną za sobą drzwi? 
+- Brakuje oznak żerowania. - Twierdził patrząc pod nogi. - Spodziewałbym się jakiś szczątków zwierząt czy coś takiego. Teraz pytanie, kto ostatni zamkną za sobą drzwi? 
 
 Ściany nie nosiły śladów uszkodzeń, ani zadrapań. To samo tyczyło się rozsuwanych drzwi, których Kronos minął już z tuzin. Wszystko było bardzo dobrze zachowane, aż zbyt dobrze. Na rozwidleniu skręcił w prawo, potem dwa razy w lewo. Przystanął gdy zobaczył coś dziwnego. Dwa szkielety przytwierdzone do drucianego stojaka stały przed śluzą z wysadzonym panelem sterowania. Normalnie dość jasny beton był osmolony od wybuchu. Łowca przewiesił broń przez plecy i podszedł bliżej patrząc pod nogi czy nie wdeptuje w jakąś pułapkę. 
 
@@ -243,9 +243,9 @@ Kontrowersyjne dzieło sztuki składało się z kości mutantów należących d
 Tym razem uszkodzenia były mniejsze pomimo prawdopodobnie odpalenia kilku ładunków. Same wrota były bardziej masywne. Chroniły jedną z głównych klatek schodowych placówki. Zajrzał do środka i o cenił stan zamka. 
 - Nie ma kompletnie nic. Mechanizm został usunięty. - Powiedział sam do siebie. 
 
-Zaparł się nogą i pociągnął drzwi z całeś siły. Tym razem pył nie blokował rolek i wszystko ruszyło bez większych problemów. Postanowił za sobą nie zasuwać niczego, gdyby miał mieć problem otworzyć je z powrotem. 
+Zaparł się nogą i pociągnął drzwi z całeś siły. Tym razem pył nie blokował rolek i wszystko ruszyło bez większych problemów. Postanowił za sobą niczego nie zasuwać, gdyby miał mieć problem otworzyć je z powrotem. 
 
-Dalej było jeszcze dziwniej. Wnętrze przypominające takie w łodzi podwodnej było usiane różnymi napisami i piktogramami. Wszystko zapisane w jakimś dziwnych językach, których Kronos nie kojarzył. Rodzaje pisma mocno się od siebie różniły. Jedne przypominały trochę cyrylicę, drugie jakieś runy, a jeszcze inne nie przypominały nic szczególnego, może poza jakąś uproszczoną wersją egipskich hieroglifów. Jego wzrok na zastygł na chwilę na krótkiej notatce zapisanej koślawym alfabetem łacińskim. Podszedł bliżej i przyklęknął, aby rozczytać wiadomość. 
+Dalej było jeszcze dziwniej. Wnętrze przypominające takie w łodzi podwodnej było usiane różnymi napisami i piktogramami. Wszystko zapisane w jakimś dziwnych językach, których Kronos nie kojarzył. Rodzaje pisma mocno się od siebie różniły. Jedne przypominały trochę cyrylicę, drugie jakieś runy, a jeszcze inne nie przypominały nic szczególnego, może poza jakąś uproszczoną wersją egipskich hieroglifów. Jego wzrok zastygł na chwilę na krótkiej notatce zapisanej koślawym alfabetem łacińskim. Podszedł bliżej i przyklęknął, aby rozczytać wiadomość. 
 - Co, co to do cholery jest? - Mówił sam do siebie w głowie. - Co drugie słowo jest angielskie, co trzecie japońskie zapisane fonetyczne, a reszta to jakaś ich mieszanka. 
 
 Komputer w jego głowie wariował próbując pojąć nowy język. Była to przydatna funkcja, ale tekst był zbyt krótki, aby miało to większy sens. 
@@ -275,7 +275,7 @@ Komputer w jego głowie wyświetlił ostrzeżenie: poziom stężenia argonu gwa�
 
 - Cholera. Coś przecieka. -  mruknął do siebie, czując jak adrenalina wzrasta w jego żyłach. - Jeżeli upadnę, nie będzie już ratunku. -  Westchnął, zdając sobie sprawę z niebezpieczeństwa.
 
-Wyciągnął korbę i odczekał kilka chwil, aż gęsty gaz zdąży opuścić pomieszczenie, tworząc nad nim przejrzystą ścieżkę. Spojrzał w stronę klatki schodowej, upewniając się, że nikt nie podąża za nim. Potem wkraczać w mrok magazynu, który przypominał pradawne katakumby.
+Wyciągnął korbę i odczekał kilka chwil, aż gęsty gaz zdąży opuścić pomieszczenie, tworząc nad nim przejrzystą ścieżkę. Spojrzał w stronę klatki schodowej, upewniając się, że nikt nie podąża za nim. Wkroczył w mrok magazynu, który przypominał pradawne katakumby.
 
 Mijał rzędy skrzyń, pełnych skarbów technologicznych, o których jego drużyna na powierzchni mogła jedynie śnić. Elementy elektroniczne, części, półprodukty, schematy, gotowe maszyny – wszystkie perfekcyjnie zapakowane i zabezpieczone na wieczność. Ten sprzęt mógłby dać nowe życie ich zdegradowanej placówce, nowy początek, lecz nie na tym mu zależało. Po długich minutach wędrówki przez labirynt, dotarł do miejsca docelowego.
 
