@@ -34,9 +34,23 @@
               "icon": "lucide-file",
               "title": "Coś innego"
             }
+          },
+          {
+            "id": "b0dd87e355db5138",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Coś innego.md",
+                "mode": "source",
+                "source": true
+              },
+              "icon": "lucide-file",
+              "title": "Coś innego"
+            }
           }
         ],
-        "currentTab": 1
+        "currentTab": 2
       }
     ],
     "direction": "vertical"
@@ -177,15 +191,15 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "6e90e5c2dc6bfeba",
+  "active": "b0dd87e355db5138",
   "lastOpenFiles": [
+    "System.md",
+    "Coś innego.md",
     "Kierunek_Intal.md",
     "Kronos.md",
     "Targ_Intal.md",
     "Untitled.md",
-    "Coś innego.md",
     "Untitled",
-    "System.md",
     "Operacja_Intal.md",
     "test2",
     "test1",
