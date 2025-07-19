@@ -179,9 +179,9 @@ Nim wojownicy zdołali unieść broń do strzału przygwoździła ich do ziemi b
 - Co się stało? - Spytał sam siebie w głowie. 
 
 Zdzwoniło mu w uszach, a wyświetlacz hełmowy drukował śmieci sygnalizując, że sam komputer pancerza wspomaganego mocno oberwał i potrzebował chwili za zresetowanie się. Kapitan poniósł się z ziemi oglądając pobojowisko. Po magu nie było ani śladu. 
-- Zassał tyle energii na raz, że się wysadził. - Zaśmiał się kapitan. 
+- Zassał tyle energii na raz, że się wysadził. - Zaśmiał się. 
 
-Trzech z jego ludzi wstało o własnych siłach. Alkeos, który oberwał najmocniej leżał nieprzytomny na posadce. Komputer w zbroi wreszcie doszedł do siebie i wstrzyknął porą dawkę stymulantów i środków przeciwbólowych prosto ko krwioobiegu dowócy. Niemal od razu ból wywołany poparzeniami minął i mógł walczyć dalej. 
+Trzech z jego ludzi wstało o własnych siłach. Alkeos, który oberwał najmocniej leżał nieprzytomny na posadce. Komputer w zbroi wreszcie doszedł do siebie i wstrzyknął sporą dawkę stymulantów i środków przeciwbólowych prosto do krwioobiegu dowócy. Niemal od razu ból wywołany poparzeniami minął i mógł walczyć dalej. 
 
 Balkon Nikeforosa zniknął w eksplozji. Kamienna konstrukcja rozsypała się jak domek z kart, a terminator upadł na stertę gruzu poniżej. Rycerze zakonu czerwonej róży z szyku defensywnego przeszli do ofensywnego. 
 
@@ -193,7 +193,7 @@ Terminatorzy w niebieskawych pancerzach i rycerze w złotych blachach zderzyli s
 
 Jeden z rycerzy zamarkował atak i szybko zmienił kierunek ostrza trafiając w hełm Heliosa. Ostrze odłupało mały fragment skorupy. Kapitan zadał potężny cios mieczem wytrącając broń z ręki wojownika. Zanim przeciwnik zdążył odzyskać równowagę uderzył go w bok płazem. Pole zbroi wraz z energią uderzenia posłało biedaka prosto na sierżanta, który doskonale wykorzystał moment i nabił go na swój miecz. 
 
-Kobieta dzierżąca magiczną laskę sięgnęła ręką do swoich perły. Smuga energii przypominająca zielony dym wypłynęła z kuli i zaczęła krążyć wokół dłoni czarodziejki. 
+Kobieta dzierżąca magiczną laskę sięgnęła ręką do swoich pereł. Smuga energii przypominająca zielony dym wypłynęła z kuli i zaczęła krążyć wokół dłoni czarodziejki. 
 
 - Szlak. Zaczyna czarować. - Warkną kapitan rzucając się w przód prosto na przeciwka z największą ilością złotych osób na napierśniku. 
 
@@ -203,9 +203,40 @@ Lider rycerzy zablokował cios tarczą. Zamiast ciąć, dźgnął Heliosa piękn
 
 W tym samym momencie Tecmessa zdzielił złotego rycerza wyrzucając jego martwe ciało w powietrze. 
 
-Helios wycelował bolter w przeciwnika, ładując komorę plazmową. Gdy już miał naciskać spust i spopielić wojownika, ten doskoczył i odbił jego broń. Kula plazmy wypaliła z lufy tworząc miniaturowy krater w posadzce. Helios zablokował nadchodzący cios wycelowany w jego wizjer. Przeciwnik zaczął się z nim siłować, ale terminator był znacznie silniejszy. Kapitan upuścił swój bolter i chwycił za magiczną tarczę. Szarpnięciem wyrwał ją z rąk rycerza. Drugą ręką naparł jeszcze mocniej. Rycerz nie wytrzymał i upadł. Helios nadepnął mu na nogę nie pozwalając mu wstać. Różowiec krzyknął z bólu, gdy jego kości zaczęły pękać. Terminator obrócił miecz i wbił ostrze w szyję rycerza uciszając go. 
+Helios wycelował bolter w przeciwnika, ładując komorę plazmową. Gdy już miał naciskać spust i spopielić wojownika, ten doskoczył i odbił jego broń bijąc płazem. Kula plazmy wypaliła z lufy tworząc miniaturowy krater w posadzce. Helios zablokował nadchodzący cios wycelowany w jego wizjer. Przeciwnik zaczął się z nim siłować, ale terminator dzięki siłownikom wbudowanym w pancerz i nadludzkiej tężyźnie z łatwością wygrał z wzmacnianym jedynie magią złotej zbroi człowiekiem. Kapitan upuścił swój bolter i chwycił za tarczę. Metal zaiskrzył pod palcami, gdy zaciskał chwyt.  Szarpnięciem wyrwał ją z rąk rycerza. Drugą ręką naparł jeszcze mocniej. Wojownik z zrobił krok w tył. Obydwaj wymieli kilka ciosów i parad pokazując swój kunszt i umiejętności. Helios uniósł miecz nad głowę i ciął z góry na dół. Czerwonoróżowiec chwycił wolną ręką za ostrze i uniósł miecz nad głowę. Ostrza zetknęły się. Rozbłysło światło emitowane z obydwu głowni. Coś w ramieniu rycerza strzeliło. Ramię Heliosa upadło a jego miecz wbił się w ramie rycerza. Mężczyzna upadł na ziemię z wyrazem bólu na twarzy. Kapitan  nadepnął mu na nogę nie pozwalając wstać.Różowiec krzyknął z bólu, gdy jego kości zaczęły pękać. Terminator obrócił miecz i wbił ostrze w szyję rycerza uciszając go. 
 
-Kula ognia unosząca się nad polem bitwy bez ostrzeżenia rozbłysła niczym supernowa. Wszystko zostało zalane ostrym jasnym światłem. Helios instynktownie zasłonił wizjer ręką. Następie usłyszał jak sufit zaczął się walić. Cegły i odłamki skalne zaczęły rozbijać się o jego karapaks. Instynktownie odskoczył w tył ledwo ratując się od przysypania. 
+
+Kula ognia unosząca się nad polem bitwy bez ostrzeżenia rozbłysła niczym supernowa. Wszystko zostało zalane ostrym jasnym światłem. Helios instynktownie zasłonił wizjer ręką. Następie usłyszał jak sufit zaczął się walić. Cegły i odłamki skalne zaczęły rozbijać się o jego karapaks. Odskoczył w tył ledwo ratując się od przysypania. Kilkanaście sekund później zapadła grobowa cisza przerywana jedynie odgłosem spadających z hałdy gruzu odłamków. 
+
+- Wszyscy cali? - Spytał kapitan włączając wbudowany w zbroję szeroko pasmowy skaner. 
+- Wydaje mi się, że tak. - Odparł po chwili Dzeus. 
+
+Na wyświetlaczu hełmu ukazała się mapa okolicy z oznaczonymi pozycjami terminatorów. Auspex nie pokazywał nic więcej, można było założyć, że kobieta mag odpowiedzialna za wysadzenie sufitu uciekła w głąb korytarza. 
+
+- Co z Alkeosem? - Dopytał Helios. 
+- Będę żyć. - Słabym i pełnym bólu głosem odparł wojownik. - Trochę mnie przysmażył ten parszywy mag. 
+
+Od strony zawalonego balkonu doczłapał się Nikeforos. Jego działko obrotowe było uszkodzone. Stalowe lufy jeszcze ciepłe od niedawnego wystrzału były powyginane od upadku z wysokości. 
+
+- Ktoś tutaj chyba zaliczył twarde lądowanie. - Zagaił Enualios próbując rozładować atmosferę. 
+- Zamknij się. - Warknął Nikeforost. - Gdyby nie pancerz to wiele by ze mnie nie zostało. Odłamki skalne powpadały mi w szczeliny pomiędzy płytami i przebiły kombinezon. 
+- Dasz radę walczyć? - Spytał kapitan.
+- Nadal mam pięść. - Zacisnął rękawicę, a małe wyładowania energetyczne przeskoczyły pomiędzy palcami. 
+- Doskonale, przegrupujemy się i ruszymy za ostatnim magiem. Jej sprzęt będzie doskonały zwięczeniem naszej wyprawy. 
+- To nie będzie najlepszy pomysł. - Odezwał się Tecmessa. 
+
+Helios obrócił się i zobaczył, że klęczy nad rannym Alkeosem. 
+
+- Przydałby nam się medyk. Alkeos stracił sporo krwi. 
+- Nic mi nie jest. - Machnął ręką terminator próbując podnieść się z ziemii. 
+- Cholera. - Powiedział Dzeus włączając lampę i oglądając mężczyznę w spektrum światła widzialnego. - To cud, że jesteś jeszcze w śród żywych. Helios. - Zwrócił się do dowódcy. - Dalsza walka może się skończyć stratą zbroi, nie możemy się na to pozwolić. 
+- Alkeos to już może sobie umrzeć, ale zbroja jest niezastąpiona. - Wtrącił ironicznie Nikeforos dobrze wiedząc jakie były realia. 
+
+Kapitan ponownie się obrócił. Patrzył to na gróz to na ciemny tunel prowadzący w nieznane którym najprawdopodobniej uciekła kobieta w raz z ostatnimi rycerzami obstawy. 
+
+- Dzeus, Tecmessa, roztawcie się i nas osłaniajcie. Reszta niech zacznie przeszukiwać pobojownisko. Musimy odkopać mój bolter i trupy rycerzy. Ich zbroje i broń też nam wystarczą. - Rozkazał zacznając odrzucać na bok największe fragmetny zawalonego stropu. 
+
+
 
 
 
