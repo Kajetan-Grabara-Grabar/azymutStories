@@ -13,26 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Kronos.md",
+                "file": "Podziemie.md",
                 "mode": "source",
                 "source": true
               },
               "icon": "lucide-file",
-              "title": "Kronos"
-            }
-          },
-          {
-            "id": "6e90e5c2dc6bfeba",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Coś innego.md",
-                "mode": "source",
-                "source": true
-              },
-              "icon": "lucide-file",
-              "title": "Coś innego"
+              "title": "Podziemie"
             }
           },
           {
@@ -48,9 +34,22 @@
               "icon": "lucide-file",
               "title": "Coś innego"
             }
+          },
+          {
+            "id": "4a9388857ab2ab6a",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "System.md",
+                "mode": "source",
+                "source": true
+              },
+              "icon": "lucide-file",
+              "title": "System"
+            }
           }
-        ],
-        "currentTab": 2
+        ]
       }
     ],
     "direction": "vertical"
@@ -123,7 +122,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Coś innego.md",
+                "file": "Podziemie.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -133,7 +132,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Coś innego"
+              "title": "Backlinks for Podziemie"
             }
           },
           {
@@ -191,14 +190,14 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "b0dd87e355db5138",
+  "active": "6b69aaa4f60f730a",
   "lastOpenFiles": [
     "System.md",
+    "Podziemie.md",
+    "Kronos.md",
     "Coś innego.md",
     "Kierunek_Intal.md",
-    "Kronos.md",
     "Targ_Intal.md",
-    "Untitled.md",
     "Untitled",
     "Operacja_Intal.md",
     "test2",
